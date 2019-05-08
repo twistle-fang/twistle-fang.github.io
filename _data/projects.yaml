@@ -1,6 +1,6 @@
 - title: World
   url: http://taylantatli.me/Halve
-  image: /assets/img/worldSplash.png
+  image: /images/worldSplash.png
   completed: true
 
 - title: Monsters
@@ -10,7 +10,7 @@
 
 - title: Players
   url: http://taylantatli.me/Ramme
-  image: /assets/img/playerSplash.png
+  image: /images/playerSplash.png
   completed: false
 
 - title: Notable Characters
