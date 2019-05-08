@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Formatting Test Post"
-date:   2016-05-29
+date:   2019-05-8
 excerpt: "next we try removing the date."
 image: /images/testPic.png
 tag:
