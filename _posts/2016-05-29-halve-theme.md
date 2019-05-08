@@ -3,7 +3,7 @@ layout: post
 title:  "Halve Jekyll Theme"
 date:   2016-05-29
 excerpt: "Stylish, two-column Jekyll theme for your blog."
-image: /assets/img/testPic.png
+image: /images/testPic.png
 tag:
 - jekyll 
 - halve
