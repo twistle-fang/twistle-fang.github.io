@@ -1,6 +1,6 @@
 - title: World
   url: http://taylantatli.me/Halve
-  image: worldSplash.png
+  image: /assets/img/worldSplash.png
   completed: true
 
 - title: Monsters
@@ -10,20 +10,20 @@
 
 - title: Players
   url: http://taylantatli.me/Ramme
-  image: playerSplash.png
+  image: /assets/img/playerSplash.png
   completed: false
 
 - title: Notable Characters
   url: http://taylantatli.me/Daisy-Pelican-Theme/
-  image: npcSplash.png
+  image: /assets/img/npcSplash.png
   completed: false
 
 - title: Immortals
   url: https://github.com/TaylanTatli/Block-Icon-Theme
-  image: immSplash.png
+  image: /assets/img/immSplash.png
   completed: false
 
-- title: Iterations
+- title: Artifacts
   url: http://taylantatli.me/StartPage/
   image: https://raw.githubusercontent.com/TaylanTatli/StartPage/master/preview.png
   completed: false
