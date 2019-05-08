@@ -5,7 +5,7 @@
 
 - title: Monsters
   url: http://taylantatli.me/Moon
-  image: monsterSplash.png
+  image: https://github.com/drifter-handbook/drifter-handbook.github.io/blob/master/images/monsterSplash.png?raw=true
   completed: true
 
 - title: Players
