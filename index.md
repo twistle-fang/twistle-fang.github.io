@@ -1,10 +1,8 @@
 ---
 layout: home
 ---
-# About Theme
+# In-Progress
 
-This theme is Jekyll port of [vangeltzo.com](http://vangeltzo.com/) (by [Vangelis Tzortzis](https://github.com/srekoble)).
+I don't know HTML so pardon as I tear this site apart and rebuild it slowly
 
-To learn how to install and use this theme check out the [installation guide](http://taylantatli.me/Halve/halve-theme/) for more information.
-
-If you have a question, find a bug, or just want to say hi, please open an [issue on GitHub](https://github.com/TaylanTatli/Halve/issues/new).
+Test formatting post is up. Image layering system files are in as well.
