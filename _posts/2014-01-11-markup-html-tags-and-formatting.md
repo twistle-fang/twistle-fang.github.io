@@ -3,12 +3,6 @@ layout: post
 title: "Markup: HTML Tags and Formatting"
 categories:
   - Markup
-tags:
-  - content
-  - css
-  - formatting
-  - html
-  - markup
 ---
 
 A variety of common markup showing how the theme styles them.
