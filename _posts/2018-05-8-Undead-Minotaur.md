@@ -3,7 +3,7 @@ layout: post
 title:  "Undead Minotaur"
 date:   2018-05-8
 excerpt: "Large, undead creature risen from the sea."
-image: /images/moldovaPic.png
+image: /images/minotaurPic.png
 tag:
 - illumina
 - monsters 
