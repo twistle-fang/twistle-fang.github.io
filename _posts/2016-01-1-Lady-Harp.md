@@ -18,5 +18,5 @@ A 4' Pedal Harp weilded by Lady Parhelion. The base is crafted from marble, and 
 ### Drifters
 Lady Parhelion attacks exclusively with her harp, forgoing all other weaponry. However, she favors the harp as a bludgeoning weapon, rather than a proper instrument. She appears to be inseperable from her harp, carrying it everywhere despite its bulk. She practices on it relentlessly during rests, using it to transcribe all sorts of songs. Despite her devotion to her craft, Lady Parhelion has admitted to hating the harp.
 
-###Abilities
+### Abilities
 Lady Parhelion's harp appears to be an unbreakable object and is magical in some fashion, although it is not clear how. The harp is used as a conduit for her bard and cleric magic, and can be both wielded and played at the same time with the assistance of mage hands. The spell "Heat Metal" can be used on the iron dog heads to turn the harp into a fire-damage weapon.
