@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Undead Minotaur"
-date:   2018-05-8
+date:   2018-01-1
 excerpt: "Large, undead creature risen from the sea."
 image: /images/minotaurPic.png
 tag:
