@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Capital City"
-date:   2017-05-9
+date:   2017-01-2
 excerpt: "The largest city in Drachend, destroyed by the sun."
 image: /images/capitalPic.png
 tag:
