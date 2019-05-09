@@ -4,11 +4,6 @@ title:  "Formatting Test Post"
 date:   2019-05-8
 excerpt: "next we try removing the date."
 image: /images/testPic.png
-tag:
-- savvy 
-- is
-- testing
-- tags
 ---
 
 ## Some bullet points
