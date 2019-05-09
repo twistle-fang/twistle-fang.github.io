@@ -1,29 +1,29 @@
-- title: World
-  url: http://taylantatli.me/Halve
+- title: Places
+  url: https://drifter-handbook.github.io/tags#places
   image: /images/worldSplash.png
   completed: true
 
 - title: Monsters
-  url: http://taylantatli.me/Moon
+  url: https://drifter-handbook.github.io/tags#monsters
   image: https://github.com/drifter-handbook/drifter-handbook.github.io/blob/master/images/monsterSplash.png?raw=true
   completed: true
 
 - title: Players
-  url: http://taylantatli.me/Ramme
+  url: https://drifter-handbook.github.io/tags#players
   image: /images/playerSplash.png
   completed: false
 
-- title: Notable Characters
-  url: http://taylantatli.me/Daisy-Pelican-Theme/
-  image: /assets/img/npcSplash.png
+- title: NPCs
+  url: https://drifter-handbook.github.io/tags#npc
+  image: /images/npcSplash.png
   completed: false
 
 - title: Immortals
-  url: https://github.com/TaylanTatli/Block-Icon-Theme
-  image: /assets/img/immSplash.png
+  url: https://drifter-handbook.github.io/tags#immortals
+  image: /images/immSplash.png
   completed: false
 
 - title: Artifacts
-  url: http://taylantatli.me/StartPage/
-  image: https://raw.githubusercontent.com/TaylanTatli/StartPage/master/preview.png
+  url: https://drifter-handbook.github.io/tags#artifacts
+  image: /images/worldSplash.png
   completed: false
