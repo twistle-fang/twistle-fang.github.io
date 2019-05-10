@@ -3,7 +3,7 @@ layout: post
 title:  "The Chimera of Uln"
 date:   2018-01-3
 excerpt: "Three-headed beast which held Uln hostage."
-image: /images/testPic.png
+image: /images/chimeraPic.png
 tag:
 - ashen
 - monsters 
