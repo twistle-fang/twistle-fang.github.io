@@ -5,12 +5,12 @@ date:   2018-01-2
 excerpt: "Wolf made of insects summoned from a rotting banquet."
 image: /images/feastwolfPic.png
 tag:
-- ashen
+- reborn
 - monsters 
 ---
 
 ## Feast Beast
-Campaign: Ashen
+Campaign: Reborn
 
 ### Description
 An oversized lupine creature made completely of small insects. This creature was created in the Trial of Heroes on the third trial, the banquet. Within the rotten food on the table lie the insects which form the creature, and when summoned they leave their various dishes to amalgamate into a wolf shape. The creature appears to not be sentient, but have the collective intelligence of a regular dog. It can be tame at times, but otherwise will act on orders to destoy anyone participating in the trial.
