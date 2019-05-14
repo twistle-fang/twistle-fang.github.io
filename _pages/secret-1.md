@@ -4,6 +4,7 @@ title:  "The Chaotics"
 date:   1950-01-1
 excerpt: "???"
 image: /images/chaotics4.png
+permalink: /chaotics4.html
 ---
 
 XGD SGTQXJSW
