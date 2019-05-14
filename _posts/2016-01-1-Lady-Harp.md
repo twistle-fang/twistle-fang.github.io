@@ -13,7 +13,7 @@ tag:
 Campaign: Drachend/Ashen/Illumina
 
 ### Description
-A 4' Pedal Harp weilded by Lady Parhelion. The base is crafted from marble, and the strings are made of spider webbing, making it both incredible heavy and impossible to play by anyone other than the bard herself. The harp has been fitted with an iron tailpin and ornate iron crest resembling two barking dog heads. The addition of these metal pieces appears to have been done so for combat purposes, as they are heavily dented and scuffed.
+A <a href="https://drifter-handbook.github.io/chaotics4" >4'</a> Pedal Harp weilded by Lady Parhelion. The base is crafted from marble, and the strings are made of spider webbing, making it both incredible heavy and impossible to play by anyone other than the bard herself. The harp has been fitted with an iron tailpin and ornate iron crest resembling two barking dog heads. The addition of these metal pieces appears to have been done so for combat purposes, as they are heavily dented and scuffed.
 
 ### Drifters
 Lady Parhelion attacks exclusively with her harp, forgoing all other weaponry. However, she favors the harp as a bludgeoning weapon, rather than a proper instrument. She appears to be inseperable from her harp, carrying it everywhere despite its bulk. She practices on it relentlessly during rests, using it to transcribe all sorts of songs. Despite her devotion to her craft, Lady Parhelion has admitted to hating the harp.
