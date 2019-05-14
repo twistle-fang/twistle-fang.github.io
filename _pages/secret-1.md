@@ -3,7 +3,7 @@ layout: post
 title:  "The Chaotics"
 date:   1950-01-1
 excerpt: "???"
-image: /images/chaotics4.png
+image: /images/4chaotics.png
 permalink: /chaotics4.html
 ---
 
