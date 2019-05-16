@@ -29,3 +29,5 @@ The loot collected from the Chimera was:
 - The Chimera's Ram Horn (Lantern Carrier)
 - Several vials of the rot within the Chimera (Baba Yaga)
 - The Chimera's Lion Head (Admiral Ye)
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/2SPVENTu2Pu2BPUblZdsBp" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
