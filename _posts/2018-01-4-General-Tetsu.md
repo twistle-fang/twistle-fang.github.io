@@ -27,3 +27,5 @@ Some notable things that happened during the fight:
 - The Lantern Carrier, failing three consequtive attempts at casting magic, opting to smack the dragon's head with her staff out of frustration.
 - At least one drifter throwing their weapon skyward in an attempt to hit General Tetsu while he flew
 - An entire round where the drifters strategied how to put out as many people who were on fire as possible.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/2Ya5nvKPhOln3M9Tihhx7W" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
