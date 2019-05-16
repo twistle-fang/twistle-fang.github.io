@@ -20,3 +20,5 @@ Wandering around the woods of Washoregon lives a looming, bigfoot-like creature.
 After being called together for a funeral in Washoregon, the drifters were pursued by the Orangufoot as they journeyed through the hills at night. The Orangufoot managed to capture a few of the drifters and drag them back (breaking the spine of one), leading to a final confrontation with the alien atop the observatory and, by extention, Lucielle Johnson. 
 
 The Orangufoot was later killed pursuing the gorilla god's disciple, who had taken up shelter in a nearby ranger station. Retreating back to town, the drifter returned with company to find that the body of the creature had vanished. The legend of the Orangufoot lived on for a few years, but all eyewitnesses were later thought mad, and it faded out into folklore for the city.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/2LQXchD1sxlNwOhMoyBub8" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
