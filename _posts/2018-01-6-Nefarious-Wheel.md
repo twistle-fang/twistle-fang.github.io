@@ -21,3 +21,5 @@ The final challenge of Lucielle Johnson's amusement park was the ferris wheel. T
 Atop one of the carriages, however, was the last banana needed by the gorilla god's servant to appease his deity. While he died shortly after, he was able to successfully retrieve the banana and complete his life mission.
 
 The Nefarious Wheel was eventually thwarted by evading it and steering it into obstacles around the fairgrounds. The wheel eventually lost momentum, caught up in its own trail of destruction, and fell apart. Despite Lucielle Johnson's best efforts to kill Nero, the man survived with two minutes left on the bomb in the middle of his chest, and he survived yet another session.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/6PsSOEzEPxeTHWKNQQyhKY" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
