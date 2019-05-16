@@ -57,3 +57,5 @@ Some other notable choices made during the Trial of Heroes:
 - Throughout the entirety of the second fourth trial, Velvet challenges each of the drifters to prove why they should live. Those that admit they should not or who apologize were speared from behind and killed instantly. Those that argued against Violet and her ways, or were indifferent, were killed in more creative fashions.
 - During the final room, the two drifters who initially killed Velvet in the first trial assuredly convince the group that Violet must be killed as well. However, the two decide to share their guilt and agree to strike the killing blow together this time. As soon as the decision is reached, the drifters fade into unconsciousness.
 - Each drifter recieves a wolf tooth from the necklace gifted to them by Velvet, each shining a different color.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/3WtDmICWBepn46Tbpm7zqW" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
