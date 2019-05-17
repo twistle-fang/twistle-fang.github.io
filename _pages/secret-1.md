@@ -7,6 +7,9 @@ image: /images/4chaotics.png
 permalink: /chaotics4.html
 ---
 
+<iframe src="https://open.spotify.com/embed/track/0hRJNNyjoIlRcrgYVypM2Y" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+
+
 XGD SGTQXJSW
 
 Xgd Sgtqxjsw eqvndb t ivqxgdvgqqb qe xgdjv qcp evddcjmm. Gqcdzdv, xgda cqymb wrdpb xgd pdhx gypbvdb adtvw tx dtsg qxgdv'w xgvqtxw. Pdzdv ctw wysg t zqmtxjmd fvqyr itpbdb, tpb pdzdv cjmm xgda rtvx.
