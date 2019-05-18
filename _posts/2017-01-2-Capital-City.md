@@ -29,4 +29,4 @@ Each group of the drifters had a different experience in the city, most relating
 
 One group of drifters kidnapped the princess, prompting the king to reach out to another band of drifters (who were natives to the city) to go hunt the kidnappers down. By the time both groups had left the city, however, the sun had fallen from the sky and destroyed not only the town but all the people therein. This prompted several drifters to question whether their quest should be pursued at all.
 
-<center><iframe src="https://open.spotify.com/user/isittooshortornotavailable/playlist/6wIODD70QvgphnOsFpyCba?si=WChoPujcS_m5_FgkwhPVCQ" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe></center>
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/6wIODD70QvgphnOsFpyCba" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
