@@ -3,7 +3,7 @@ layout: post
 title:  "Tree-Felled Tavern"
 date:   2017-01-7
 excerpt: "The last bastion of a raided town."
-image: /images/prisonPic.png
+image: /images/tavernPic.png
 tag:
 - reborn
 - places 
