@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Triumvirate Elves"
-date:   2018-01-7
+date:   2018-01-8
 excerpt: "Subrace of elves splitting with dark energy."
 image: /images/elvesPic.png
 tag:
