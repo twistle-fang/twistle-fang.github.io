@@ -5,12 +5,12 @@ date:   2018-01-2
 excerpt: "Wolf made of insects summoned from a rotting banquet."
 image: /images/feastwolfPic.png
 tag:
-- ashen
+- reborn
 - monsters 
 ---
 
 ## Feast Beast
-Campaign: Ashen
+Campaign: Reborn
 
 ### Description
 An oversized lupine creature made completely of small insects. This creature was created in the Trial of Heroes on the third trial, the banquet. Within the rotten food on the table lie the insects which form the creature, and when summoned they leave their various dishes to amalgamate into a wolf shape. The creature appears to not be sentient, but have the collective intelligence of a regular dog. It can be tame at times, but otherwise will act on orders to destoy anyone participating in the trial.
@@ -19,3 +19,5 @@ Due to the structure of the Feast Beast, slashing and piercing weapons are at a 
 
 ### Drifters
 This creature, or composite, was summoned by Violet and showed great affection towards her, allowing the girl to stroke its "fur" and nuzzling into her arms. However, when the trial began, the Feast Beasts began to attack the drifters. The fight was ultimately won by having several of the drifters summon fire and setting the Feast Beasts alight. Once the creatures were burned to ash, the drifters were allowed to proceed to the next trial.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/2mKzahFKbbufc5SQtFgyeQ" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>

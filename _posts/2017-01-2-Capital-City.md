@@ -28,3 +28,5 @@ Unfortunately, the Capital City was destroyed by a falling sun.
 Each group of the drifters had a different experience in the city, most relating to navigating the sewers to reach the interior of the castle. Tensions between nations were high when they first arrived, and each drifter group was from a different nation, attemping to either help/harm the city. 
 
 One group of drifters kidnapped the princess, prompting the king to reach out to another band of drifters (who were natives to the city) to go hunt the kidnappers down. By the time both groups had left the city, however, the sun had fallen from the sky and destroyed not only the town but all the people therein. This prompted several drifters to question whether their quest should be pursued at all.
+
+<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/6wIODD70QvgphnOsFpyCba" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>

@@ -3,8 +3,12 @@ layout: post
 title:  "The Chaotics"
 date:   1950-01-1
 excerpt: "???"
-image: /images/chaotics4.png
+image: /images/4chaotics.png
+permalink: /chaotics4.html
 ---
+
+<iframe src="https://open.spotify.com/embed/track/0hRJNNyjoIlRcrgYVypM2Y" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+
 
 XGD SGTQXJSW
 
