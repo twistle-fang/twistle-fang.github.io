@@ -3,7 +3,7 @@ layout: post
 title:  "Dibs"
 date:   1950-01-2
 excerpt: "???"
-image: /images/minotaurPic.png
+image: /images/bloodPic.png
 permalink: /dibs7.html
 ---
 <iframe src="https://open.spotify.com/embed/track/34FEpygxlcPm1tE26YqewO" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
