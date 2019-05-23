@@ -3,7 +3,7 @@ layout: post
 title:  "Lucille Johnson"
 date:   2014-01-3
 excerpt: "The devil wears a suit and tie."
-image: /images/lunchJello.png
+image: /images/lunchJello.gif
 tag:
 - highway
 - brass tree
