@@ -6,7 +6,7 @@ excerpt: "???"
 image: /images/emblemPic.png
 permalink: /inquiry9.html
 ---
-<iframe src="https://open.spotify.com/embed/track/12lroPHknN4YV3GgLM1nUi" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+<iframe src="https://open.spotify.com/embed/track/55UeGN3ii8yOooefZa8jo8" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
 7: Nw, wuq wj fuimwnmqb, yldq hadfqsb mn Sdgb Xdilhsmwv fdxdesh wj dn d edig? M ndy lhi kw qwh-qw-qwh ymql Nxdmsdnfwi jwi d jhy tmvuqhn. Jhsq smph d swq wj difdvd qw th, euq nlh gmgv'q sdnq swvk.
 
