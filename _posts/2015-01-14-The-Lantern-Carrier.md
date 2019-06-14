@@ -10,19 +10,23 @@ tag:
 ---
 
 ## The Lantern Carrier
+
+### 2/9
+
 Campaign: Ashen
 
 ### Personality
-
-TODO
+A calculating monk with a hopeless demeanor. While normally a very rational and clever fighter, the Lantern Carrier suffers from a dehibilitating sort of madness which drastically alters her personality from time-to-time. Depending on the situation, the Lantern Carrier can become quite distant and unwilling to take action, or she can be rushed into a berserker-like frenzy. She seeks control over herself and others, going out of her way to both maintain her image and subtely influence others to fall in line with the heirarchy she desires. Despite her flucuations, she appears to have a genuine desire to help the drifters and others as a whole.
 
 ### Description
 
-TODO
+The Lantern Carrier is a tall human woman with unkept black hair. She wears cheap pale red robes and rarely carries any other possessions on her person besides her lanterns.
 
 ### Story
 
-TODO
+The Lantern Carrier is a known member of the Nine of the North. In a zone of truth, the Lantern Carrier admitted to having been previously imprisoned with the other Nine before escaping with the assistance of Lady Parhelion. Her role in the Nine is unknown, although she has said that two of her sisters are also members of the Nine. It is known that the Lantern Carrier has an actual name, but chose not to use it. The Lantern Carrier has also mentioned in passing that her father is a much more powerful monk than she is.
+
+The only thing that Lantern Carrier refused to talk about while in the zone of truth was the specifics of how she wound up as Reborn if she escaped imprisonment. 
 
 ### Drifters
 
