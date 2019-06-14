@@ -1,12 +1,15 @@
 ---
 layout: post
-title:  "Ratatoskr"
+title:  "Authority"
 date:   1950-01-10
 excerpt: "???"
 image: /images/obsPic.png
 permalink: /authority2.html
 ---
 <iframe src="https://open.spotify.com/embed/track/5bUdtdODnRPeQpmMoqhvVY" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+
+
+
 
 "Alv fklx, Lgrhitpr pijdkrq ji ly alv."
 
