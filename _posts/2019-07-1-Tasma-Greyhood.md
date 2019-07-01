@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tasma Greyhood"
-date:   2019-06-27
+date:   2019-07-1
 excerpt: "A religious monk seemingly unbothered by death."
 image: /images/tasmaPic.png
 tag:
