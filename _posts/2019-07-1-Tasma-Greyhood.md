@@ -2,7 +2,7 @@
 layout: post
 title:  "Tasma Greyhood"
 date:   2019-07-1
-excerpt: "A religious monk seemingly unbothered by death."
+excerpt: "Religious monk seemingly unbothered by death."
 image: /images/tasmaPic.png
 tag:
 - illumina

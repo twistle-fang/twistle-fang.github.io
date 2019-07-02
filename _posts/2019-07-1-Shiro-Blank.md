@@ -1,8 +1,8 @@
 ---
 layout: post
 title:  "Shiro Blank"
-date:   2019-07-1
-excerpt: "A teenage coder with a brother complex."
+date:   2019-07-2
+excerpt: "Teenage coder with a brother complex."
 image: /images/shiroPic.png
 tag:
 - ronin
