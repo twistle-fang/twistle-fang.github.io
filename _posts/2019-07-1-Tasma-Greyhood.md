@@ -18,7 +18,7 @@ Campaign: Illumina
 ### Description
 Tasma is a female hill dwarf with deep tan skin, dark brown hair, and yellow eyes. She is 4'5'' in stature wearing minimal light clothing so her quick monk movements aren't restricted.
 
-### Backstory
+### Story
 A holy monk, Tasma boarded one of the Empire ships setting sail to Gotland to assist in helping other people follow the will of her goddess Evra.
 
 ### Relationships
