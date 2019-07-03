@@ -23,3 +23,5 @@ A holy monk, Tasma boarded one of the Empire ships setting sail to Gotland to as
 
 ### Relationships
 incomplete
+
+<iframe src="https://open.spotify.com/embed/playlist/6ogJSJvJRc4N50cP7JDCaV" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
