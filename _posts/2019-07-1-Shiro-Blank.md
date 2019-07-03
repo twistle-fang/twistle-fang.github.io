@@ -31,3 +31,5 @@ After surviving the bank ordeal Shiro developed intense megalophobia, otherwise 
 Sora: Her everything and her nothing, her reason for living. It's possible Shiro needs some intense therapy.
 
 Lucille Johnson: After running away from the bank in a panic, Lucille not only picked Shiro up but also picked up Sora and ensured his recovery. Shiro is extremely grateful because of this and is happily indebted to him.
+
+<iframe src="https://open.spotify.com/embed/playlist/4y6x31nuYqcigC4dT00D5O" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
