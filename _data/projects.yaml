@@ -9,9 +9,9 @@
   completed: true
 
 - title: Players
-  url: https://drifter-handbook.github.io/tags#players
+  url: https://drifter-handbook.github.io/tags#drifters
   image: /images/playerSplash.png
-  completed: false
+  completed: true
 
 - title: NPCs
   url: https://drifter-handbook.github.io/tags#npc
@@ -21,7 +21,7 @@
 - title: Immortals
   url: https://drifter-handbook.github.io/tags#immortals
   image: /images/immSplash.png
-  completed: false
+  completed: true
 
 - title: Artifacts
   url: https://drifter-handbook.github.io/tags#artifacts
