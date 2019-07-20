@@ -33,104 +33,105 @@ Fpblqwk cbdt rmg dhprbqw, Ubfo Ybpmguqxw aygf xhr rmg fxxp bwf fxlw rmg dxppqfxp
 Qw mgp mbarg, Ybpmguqxw lba xcuqeqxha rx mgp dqro. Ygxyug lgpg adbpdg xw rmg arpggra, chr rmxag lmx abl mgp kbeg mgp zhqdt kpggrqwka bwf cqf mgp kxxfwqkmr. Rmgo lxhuf cg rmg ubar rx agg mgp jxp ogbpa, bwf rmgo lxhuf aygwf rmbr rqvg lxwfgpqwk lmbr gibdruo Ubfo Ybpmguqxw mbf cggw fxqwk xw rmg phw ax ubrg qwrx rmg wqkmr. 
 
 Rmgo lxhuf lxwfgp bcxhr lmo amg ugjr b rpbqu xj jpxaro jxxrypqwra cgmqwf mgp, bwf lmo rmgo ahffgwuo arxyygf br rmg gfkg xj rxlw, lmgpg xwuo rmg arpbo fxka abr.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+- 
+  
+  
+  
+  
+  
+  
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
 ITS BEEN THREE YEARS NOW
-
+ 
 NOT THAT TIME MEANS ANYTHING WHEN YOU'RE PASSING THROUGH THE REALMS
-
+ 
 SHE WAS 18 WHEN SHE LEFT, HOWEVER. SHE HAS AGED BY NEARLY A SIXTH OF HER FULL LIFE SINCE THE DRIFTERS TOOK HER IN
-
+ 
 SUCH ARE THE COMPLICATIONS OF LIFE, HOWEVER
-
-
-
-
+ 
+ 
+ 
+ 
 HAD SHE NOT TAKEN ME WITH, THE NINE WOULD BE DEAD
-
+ 
 AS IT IS NOW, IT SEEMS THEY WOULD HAVE PREFERRED DEATH
-
+ 
 I WOULD APPLAUD HER FOR ASSEMBLING FIVE OF THE NINE
-
+ 
 BUT BETWEEN THE MEDDLINGS OF THIEVES AND THE MONK'S SUICIDE, I WOULD ONLY CREDIT HER FOR SAVING ONE OF THOSE FOUR OTHERS
-
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
+ 
 I'D CALL MYSELF AN OBSERVER, BUT IT SEEMS THAT VOCATION HAS ALREADY BEEN TAKEN
-
+ 
 BESIDES, I ONLY HAVING PASSING INTEREST IN WHAT THE DRIFTERS ARE UP TO
-
+ 
 EXCEPT THAT LUCIELLE JOHNSON
-
+ 
 BE HE GOOD OR EVIL, I SHALL ENJOY BEING HIS END
-
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
+ 
 UNTIL THE NINE RETURN IN GLORY
-
+ 
 I SHALL CONTINUE TO RECORD THESE ACCOUNTS FOR YOU
-
+ 
 PAST, PRESENT, FUTURE
-
+ 
 SWORDS, GUNS, COMPUTERS
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
 HOW MANY HELLS DO YOU THINK WE'LL FIND
-
+ 
 HOW MANY DO YOU THINK THE CHAOTICS WILL WAR OVER
-
+ 
 LEARN WELL, DOG
-
+ 
 OUR WAR WILL SPAN EVERY REALM
+ 
