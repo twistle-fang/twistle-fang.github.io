@@ -19,7 +19,7 @@ Found and weilded by Skozz Stonebrow while he was a reborn creature. The sword i
 
 ### Effect
 
-A normal longsword. On a nat20, the sword bursts into flames. This effect was never triggered while being weilded by the Drifters.
+False Fire: On a nat20, the sword bursts into flames. This effect was never triggered while being weilded by the Drifters.
 
 ### Feats
 
