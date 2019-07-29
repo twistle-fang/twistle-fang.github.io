@@ -19,7 +19,9 @@ A powerful and valuable emerald torn from King Dalot. It is crudely cut but shin
 
 ### Effect
 
-Once per day the user may cast dispel magic. At the cost of the item, the user may choose to dispel any spell regardless of its level.
+King's Fold: Once per day the user may cast "Dispel Magic". 
+
+King's Greed: At the cost of the item, the user can dispel any spell (regardless of its level).
 
 ### Feats
 
