@@ -20,6 +20,7 @@ A large, sturdy crossbow weilded by Reed Idtentson. A deer skull mask has been m
 ### Effect
 
 Orro's Upgrades (Round 1): Fakkenell has a +1 to hit.
+
 Orro's Upgrades (Round 2): Fakkenell generates its own ammo.
 
 ### Feats
