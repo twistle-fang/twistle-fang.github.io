@@ -3,7 +3,7 @@ layout: post
 title:  "Fakkenell"
 date:   2016-01-3
 excerpt: "Heavy crossbow fitted with a deer skull."
-image: /images/fakkennellPic.png
+image: /images/fakkenellPic.png
 tag:
 - illumina
 - artifacts 
