@@ -14,7 +14,7 @@ Campaign: Illumina
 
 ### Details
 
-A large, sturdy crossbow weilded by Reed Idtentson. A deer skull mask has been mounted on the front of the crossbow. The crossbow has no metal pieces, but pieces of chimera bone have been carved to create the firing mechanism. Despite its patchwork upgrades, it looks heavily damaged.
+A large, sturdy crossbow weilded by Reed Idtentson. A <a href="https://drifter-handbook.github.io/acemask7" >deer skull mask</a> has been mounted on the front of the crossbow. The crossbow has no metal pieces, but pieces of chimera bone have been carved to create the firing mechanism. Despite its patchwork upgrades, it looks heavily damaged.
 
 
 ### Effect
