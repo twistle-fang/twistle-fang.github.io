@@ -10,7 +10,7 @@ tag:
 ---
 
 ## Well Demon
-Campaign: Illumna
+Campaign: Illumina
 
 ### Description
 Well-fed demon ogre that lurks underneath the cemetary of Northwatch. Its leathery skin is scraped and torn from prior battles, and its feet and arms are covered in rat bites. It resides in the sewers and has a small clutch of captured victims chained to the walls. The creature itself is large and bulbous, lacking in speed but compensating by using its arms to swing to higher locations. The Well Demon lacks armor, but several layers of fat and a tough dry skin protect it from minor attacks. Its vision and hearing are nothing extrordinary, but once the demon has found its quarry it becomes dangerous to deal with. The Well Demon is sturdy and imposing, able to withstand magical attacks and take damage without flinching. Its hide is easily pierced, but not easily cut. The twin cleavers it carries become deadly when weilded by a creature with strength that of a demon. The Well Demon appears to be corrupted by Cal'Cadoth's power, with several patches of skin discolored, porous, and sprouting tentacles. It exudes a viscuous black oil that appears to be related to the corruption.
