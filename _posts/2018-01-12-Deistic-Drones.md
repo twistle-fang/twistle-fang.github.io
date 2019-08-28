@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Deistic Drones"
-date:   2014-01-5
+date:   2014-01-12
 excerpt: "Parasitic creatures which animate within the dead."
 image: /images/dronesPic.png
 tag:
