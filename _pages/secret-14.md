@@ -3,7 +3,7 @@ layout: post
 title:  "Master of Tokyo"
 date:   1950-01-14
 excerpt: "???"
-image: /images/caught.png
+image: caught.png
 permalink: /mastertokyo4.html
 ---
 <iframe src="https://open.spotify.com/embed/track/5E3yqcsZyTG5qJ8IfUClmt" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
