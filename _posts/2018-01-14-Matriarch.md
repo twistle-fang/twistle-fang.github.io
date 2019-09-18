@@ -5,31 +5,27 @@ date:   2018-01-14
 excerpt: "Rival leader of a bloodthirsty Yakuza gang."
 image: /images/matriarchPic.png
 tag:
-- illumina
+- ronin
 - monsters 
 ---
 
-## Corrupted Cave Ogre
-Campaign: Illumina
+## The Matriarch
+Campaign: Ronin
 
 ### Description
 
-A monstrous version of a cave ogre who appears to have been affected by the parasites of Cal'Kadoth. While the Corrupted Cave Ogre still resembles its base form to some degree, a large portion of its body has rotten away and been overcome by twisting tentacles. It now uses those tentacles prioritized over its other limbs, lashing out against intruders onto its land. Large black eyes cover its body like growths. Gazing into any of its eyes is like staring into a starry night. The creature is volatile and seemingly unintelligent, mustering only enough thought to tear its prey apart. It guards the pool of water in its cave, sinking its limbs into the rocky cave cieling and using its tentacles to secure its position up there until something wanders into its path. 
+A lovely woman in her mid-thirties, decked out in powerfully-charmed tattoos. While she appears human in appearance and form, she cannot be harmed by bullets or knives, and appears to hunt for sport. She appears to be obsessive both with playing with her prey and feeding on them, taking her time in stalking enemies and constantly licking blood off her nails. When desired, she can extend her nails into curling claws capable of shredding flesh.
 
-The creature is difficult to distract, and can parse information from all of its eyes at once. Destroying the eyes is irritating to the monster, but not as much as one would hope. Its tentacles deal massive damage in close quarters, lashing out with strength to rival a kraken's. The creature must be killed with persistance and defensiveness, rather than a quick and clever assault.
+In combat, she prefers to split up groups and pick off stragglers on her own time. Despite her nearly invincibility, she waits until an enemy has been left alone before making her appearance. Since she is not in any harm's way, she takes her time with her prey, often allowing them to escape but making her presence known to them. Her powers appear to be linked to both the tattoos lining her body and the black lotus drug she guards.
 
 ### Drifters
 
-While running a mission for a local alchemist, the Drifters set foot into the bloodore mines outside of a small village. While a large group of Drifters made their way down into the tunnels, several suddenly fell ill, losing consciousness and having their eyes turn "black like a starry night". Andel, Heimrich, and Rammstien managed to take the fallen Drifters to safety, then continued the investigation on their own. Upon arriving in the chamber with the bloodore, the Drifters found the Corrupted Cave Ogre attached to the ceiling, ready to pounce. The ogre ripped a massive stalagtite from the cieling and chucked it at the three, injuring all in the hit and badly wounding Andel with the stone's shrapnel. Rammstien was able to retrieve Andel from the wreckage and get everyone to safety in the village above.
+The Matriarch was the owner of the bank raided by the Ronin clan at the time the drifters were involved in their activities. During the raid, the Matriarch was alerted to the drifter's presence shortly before they reached the second floor. Rather than hide away or take action, the Matriarch ordered the guards to leave the building, but not before tying her up in her own safe and leaving the vault unlocked.
 
-Upon reuniting with Reed and Asriel, who had been dealing with affairs in the village above, the group began to form a new plan for moving forward. Reed and Asriel were greatly dissapointed by hearing that the others had failed in their objective, and decided to set out together to confront the Corrupted Cave Ogre, but were talked down into resting for the night and heading down in the morning by Andel. Once morning came, the five set off for the tunnels once more.
+Felicia and Sora were the first to reach the vault, where a single red light illuminated the stash of Black Lotus hidden away in the bowels of the building. In the center of the room, the Matriarch was loosely bound and gagged, awaiting rescue. After a quick greeting, Felicia threw the bag of explosives beneath the Matriarch's chair and tentatively removed the gag of the woman. Springing into aciton, the Matriarch blew a cloud of Black Lotus dust into Felicia's face, rendering her blind, before gutting her with elongated, monstrous nails. Sora fled down the stairs, alerting the others to the danger, but was also cut open during his escape. 
 
-Since the shrapnel from the stalagtite had caused a cave-in, Heimrich, Rammstien, and Asriel worked to clear rubble from the chamber's enterance while Reed and Andel took cover behind them to prepare ranged attacks and healing. The noise from the excavation woke the Cave Ogre, and it burst through the remaining rubble, knocking back the party with its massive black tentacles. 
+As the remaining members of the Ronin pivoted to finish their mission, the Matriarch hunted them down throughout the building individually. After being lured out of the vault, Nox squared off briefly with the Matriarch before escaping up the stairs to finish the mission and rescue Sora and Felicia. The Matriarch followed the trail of Texas throughout the second story, eventually coming face-to-face with the man as he downed a large dose of Black Lotus. The Matriarch fought with him briefly before slamming his head into the bar and leaving him to die.
 
-The fight was in close quarters, with Asriel and the goblin brothers attempting to shield their party by blocking the Cave Ogre's path. While they took greivous damage, Andel spent all his effort in keeping everyone on their feet, pulling up fallen members and reviving them with the power of Evra. Reed failed spectacularily in using his newly acquired sleep arrows, throwing several away in puffs of lavender smoke as they failed to stun the monster. In the end, the goblin brothers and Asriel managed to subdue the creature by continuously hacking away at its tentacles, not so much driving it back as stoping its advancement down the corridor. Finally, the monster was subdued, and the team moved forward to grab their hard-won prize.
+On the lower floors, the Matriarch attempted to grab Shiro as she crawled through the vents to escape. The last time the Matriarch was seen was when Nox grabbed Texas's unconscious body to escape in the car, where the Matriarch gently caressed his cheeks with her claws before letting him go.
 
-Heimrich and Ramstien kept one of the Corrupted Cave Ogre's tentacles, which one wore briefly as a scarf.
-Reed acquired several of the creature's eyes, which he traded to the alchemist for a potion of anti-magic.
-Spacejam and Orro also investigated the eyes and tentacles of the creature.
-
-<iframe src="https://open.spotify.com/embed/playlist/6HSr2cXnPWImIh2Bl2thlN" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+<iframe src="https://open.spotify.com/embed/playlist/79lDvpxzuGzSXBSMFaPaLC" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
