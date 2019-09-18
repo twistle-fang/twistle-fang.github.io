@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shiro Blank"
-date:   2019-07-2
+date:   2015-01-17
 excerpt: "Teenage coder with a brother complex."
 image: /images/shiroPic.png
 tag:
