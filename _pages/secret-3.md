@@ -8,62 +8,64 @@ permalink: /dibs7.html
 ---
 <iframe src="https://open.spotify.com/embed/track/34FEpygxlcPm1tE26YqewO" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-Ykkj hvhqkj fuvdnky fyyvs oudv dnk hyvzzgvs, ykfjc dv dfqk fot fd dnk ukad sfbk vl zqkrkdvuz.
+Reed cocked another arrow into the crossbow, ready to take aim at the next wave of skeletons.
 
-**Cvi'yk orr-ziodkj lvy rfymk myviwoumz.**
+**You're ill-suited for large groupings.
 
-Sodn f znfqk vl noz nkfj, Ykkj titgrkj gfhq iujky noz gykfdn, "Dkrr tk zvtkdnoum O jvu'd quvs. O ukkj zvtkdnoum gom fuj ufzdc dv znvvd fd."
+With a shake of his head, Reed mumbled back under his breath, "Tell me something I don't know. I need something big and nasty to shoot at."
 
-Lyvt dnk sykhqfmk vl dnk hvywzkgfrr hrotgkj dnykk momfudoh lomiykz, dvskyoum vbky Ykkj fuj dnk jyoldkyz fz dnkc lvimnd vll dnk loufr zqkrkdvuz fyviuj dnkt. Kckz f nvrrvs grfhq fuj nvyuz hiybkj oudv zwoqoum wvoudz, dnykk iujkfj touvdfiy gkmfu dv ykhvuzdyihd dnktzkrbkz. Ykkj dnyks noz hyvzzgvs iw ou fu ouzdfud.
+From the wreckage of the corpseball climbed three gigantic figures, towering over Reed and the drifters as they fought off the final skeletons around them. Eyes a hollow black and horns curved into spiking points, three undead minotaur began to reconstruct themselves. Reed threw his crossbow up in an instant.
 
-"Jogz!"
+"Dibs!"
 
-Dnk touvdfiy fd dnk nkrt vl dnk wvoud zsobkrrkj dvsfyjz Ykkj'z bvohk ottkjofdkrc, nvvbkz hiddoum oudv dnk ztvvdn zdykkd fz od hnfymkj sodn iuufdiyfr zdykumdn. Ykkj wirrkj fzojk fz xiohqrc fz nk hvirj, gid dnk tvuzdky'z znkky zdykumdn wyvwkrrkj od lvysfyj sodn f dkyyolcoumrc lfzd wfhk. Gklvyk nk hvirj ykfhd, dnk touvdfiy zsium odz tfzzobk fak oudv Ykkj'z snvrk gvjc fuj zkud not lrcoum.
+The minotaur at the helm of the point swivelled towards Reed's voice immediately, hooves cutting into the smooth street as it charged with unnatural strength. Reed pulled aside as quickly as he could, but the monster's sheer strength propelled it forward with a terrifyingly fast pace. Before he could react, the minotaur swung its massive axe into Reed's whole body and sent him flying.
 
-Lvy f zkhvuj dnk svyrj ditgrkj fyviuj not, f lriyyc vl hvrvy fuj romnd fuj giyuoum nikz. Dnku, nk zqojjkj fmfouzd dnk lrvvy vl dnk sfrr, dkfyoum noz zqou fz nk gviuhkj fhyvzz odz rkumdn. Nk lkrd dnk Zolzdyoum domndku odz myow vu noz touj, lkrd dnk lkfy vl Dfo fz znk dyokj dv qkkw dnkoy hvuukhdovu, lkrd dnk wfuoh.
+For a second the world tumbled around him, a flurry of color and light and burning hues. Then, he skidded against the floor of the wall, tearing his skin as he bounced across its length. He felt the Sifstring tighten its grip on his mind, felt the fear of Tai as she tried to keep their connection, felt the panic.
 
-Sodnvid nky foj, fhdoum vu znkky ziybobfr ouzdouhd frvuk, Ykkj dnyks noz hyvzzgvs oudv dnk myviuj, gvrd jvsu, nvwoum dv hfdhn notzkrl. Yomnd fz nk wfzzkj dnk kjmk vl dnk sfrr, dnk wvoud loufrrc hfimnd, fuj nk dnyks kbkyc viuhk vl zdykumdn oudv zrfttoum dnk hyvzzgvs oudv dnk myviuj. Noz kudoyk gvjc nium vll dnk sfrr, fytz hridhnkj fyviuj dnk dvw vl dnk hyvzzgvs. Gkrvs, dnk yfmoum zkf fuj yvhqz rfznkj, sfyuoum vl f myozrc kujoum.
+Without her aid, acting on sheer survival instinct alone, Reed threw his crossbow into the ground, bolt down, hoping to catch himself. Right as he passed the edge of the wall, the point finally caught, and he threw every ounce of strength into slamming the crossbow into the ground. His entire body hung off the wall, arms clutched around the top of the crossbow. Below, the raging sea and rocks lashed, warning of a grisly ending.
 
-Ykkj lkrd sfytdn zwykfj dnyvimn noz iujkyznoyd, gid jozdouhdrc jkhojkj fmfouzd fhquvsrkjmoum dnk sviuj gkrvs. Ouzdkfj, nk lvyhkj noz fytz iw oudv f zsoum fuj wirrkj notzkrl gfhq iw. Nk rfujkj vu dnk sfrr, iuzdohqoum dnk hyvzzgvs fuj loyoum f grouj gvrd fd dnk touvdfiy. Dnk gvrd hvrrojkj sodn odz znvirjky, fuj od gkrrvskj iw fuj rvhqkj kckz fmfou sodn Ykkj. Dfo ckrrkj, gid Ykkj hvirju'd wfyzk snfd znk sfz zfcoum.
+Reed felt warmth spread through his undershirt, but distinctly decided against acknowledging the wound below. Instead, he forced his arms up into a swing and pulled himself back up. He landed on the wall, unsticking the crossbow and firing a blind bolt at the minotaur. The bolt collided with its shoulder, and it bellowed up and locked eyes again with Reed. Tai yelled, but Reed couldn't parse what she was saying.
 
-Dnk mrfjofdvyz dvvq dnk jozdyfhdovu dv wirr gfhq dnk gkfzd, vuk pitwoum vu odz gfhq fuj dnk vdnky zrohoum fd odz zojk. Dnk vdnky dsv touvdfiyz skyk yfmoum, vuk gkfdoum dnk hrkyoh oudv f grvvjc wirw fuj dnk vdnky jyfmmoum f tvuq frvum odz fak. F lks vl dnk jyoldkyz rvvqkj iw, svyyokj, fz Ykkj rkfukj fmfouzd dnk wirwod vl dnk sfrr. Fz nk rvfjkj fuvdnky hyvzzgvs gvrd, nk ykfroekj dnfd noz gykfdnoum nfj mvuk nkfbc. Dnk znvidoum lyvt gkrvs ouhykfzkj, fymitkudz vbky nvs dv mkd not foj. Ykkj znvbkj vll dnk hvttkudz fuj nvozdkj Lfqqkukr fmfou, hiyzoum iujky noz gykfdn.
+The gladiators took the distraction to pull back the beast, one jumping on its back and the other slicing at its side. The other two minotaurs were raging, one beating the cleric into a bloody pulp and the other dragging a monk along its axe. A few of the drifters looked up, worried, as Reed leaned against the pulpit of the wall. As he loaded another crossbow bolt, he realized that his breathing had gone heavy. The shouting from below increased, arguments over how to get him aid. Reed shoved off the comments and hoisted Fakkenel again, cursing under his breath.
 
-Noz niudky'z tfyq znvuk dyik, f wkylkhd znvd lvy f wkylkhd zodifdovu. Dnk mykfd touvdfiy yfozkj odz tomndc fak, ykfjc dv zrft od oudv dnk mrfjofdvy wouukj gkrvs od. Fz od zsium dnk fak jvsu ou f tomndc hnfymk, Ykkj loykj vll noz gvrd sodn jkfjrc wykhozovu, mrfuhoum vll dnk fak fuj ykjoykhdoum odz hviyzk. Dnk fak vbkyzsium, dnk tvtkudit hfyycoum od gfhq fyviuj fuj jkhfwodfdoum dnk touvdfiy. Odz gvjc zritwkj vbky, xiohqrc znvbkj vll gc dnk lomndky gkukfdn.
+His hunter's mark shone true, a perfect shot for a perfect situation. The great minotaur raised its mighty axe, ready to slam it into the gladiator pinned below it. As it swung the axe down in a mighty charge, Reed fired off his bolt with deadly precision, glancing off the axe and redirecting its course. The axe overswung, the momentum carrying it back around and decapitating the minotaur. Its body slumped over, quickly shoved off by the fighter beneath.
 
-F hnkky zviujkj lyvt f lks gkrvs, znvidoum noz uftk, gid Ykkj zditgrkj gfhq fmfouzd dnk sfrr'z dnou gvyjkyz. F jktfujoum bvohk khnvkj dnyvimn noz nkfj-
+A cheer sounded from a few below, shouting his name, but Reed stumbled back against the wall's thin borders. A demanding voice echoed through his head-
 
-**Nkfroum! Cvi ukkj-**
+**Healing! You need-
 
-Ykkj wykzzkj f nfuj fmfouzd noz yoghfmk, nvwoum od svirju'd hvtk fsfc grvvjc. Fz zvvu fz nk dvihnkj noz hnkzd, noz bozovu griyykj fuj nk jvigrkj vbky vudv dnk wfyfwkd ou wfou.
+Reed pressed a hand against his ribcage, hoping it wouldn't come away bloody. As soon as he touched his chest, his vision blurred and he doubled over onto the parapet in pain.
 
-"U-uv…. nkfrky-" nk mfzwkj vid. "Jkfj, gkrvs. Dyftwrkj."
+"N-no…. healer-" he gasped out. "Dead, below. Trampled."
 
-**Dnku louj-**
+**Then find-
 
-Nk dnyks Dfo vid vl noz nkfj sodn f yvimn znvbk, ukfyrc rvzoum hvuzhovizukzz ou dnk wyvhkzz. Nk hvirj lkkr nky litoum gknouj dnk Zolzdyoum, gid yirkz skyk yirkz. Fu oupiyc roqk dnoz sfz uvd dv gk znfykj, kzwkhofrrc uvd ftvum pizd dsv vl dnkt zv gfjrc gfddkykj frykfjc.
+He threw Tai out of his head with a rough shove, nearly losing consciousness in the process. He could feel her fuming behind the Sifstring, but rules were rules. An injury like this was not to be shared, especially not among just two of them so badly battered already.
 
-Ykkj, lkkd uvs fumrkj dv qkkw not wyvwwkj fmfouzd dnk wfyfwkd, ykfhnkj gfhq dv wirr fuvdnky gvrd lyvt noz xiobky. Sodn noz zdykumdn wvvrkj oudv rkfuoum fmfouzd dnk ztvvdn svvj, nk ukfyrc hfbkj fz dnk zdykdhnoum tvdovu zkud yobkdz vl wfou dnyvimn noz gvjc, gid f zvld bvohk lorrkj noz kfyz. Sodn f dkyyolcoumrc hvulizoum khnv vl zviuj, f lktfrk bvohk snozwkykj wfzd not, fuj nk sfdhnkj ou nvyyvy fz ykj zdyoumz vl romnd gkmfu dv zks noz sviujz znid. Dnkc roumkykj ou noz lrkzn, mrvsoum f bovrkud ykj, gid zkfroum dvmkdnky noz gvjc vuhk tvyk.
+Reed, feet now angled to keep him propped against the parapet, reached back to pull another bolt from his quiver. With his strength pooled into leaning against the smooth wood, he nearly caved as the stretching motion sent rivets of pain through his body, but a soft voice filled his ears. With a terrifyingly confusing echo of sound, a female voice whispered past him, and he watched in horror as red strings of light began to sew his wounds shut. They lingered in his flesh, glowing a violent red, but sealing together his body once more.
 
-Ou f ziymk vl tkujoum, Ykkj wiznkj notzkrl gfhq iw vuhk tvyk fuj rvvqkj jvsu dv zkk Fujkr, fytz yfozkj fuj mrvsoum, zwkfqoum dvsfyjz not ou f lvykomu dvumik vl tfmoh. Ykkj znijjkykj gid mfbk dnk tfu f xiohq mkzdiyk vl dnfuqz, svujkyoum nvs dnk hrkyoh nfj mvddku gfhq vu noz lkkd zv xiohqrc.
+In a surge of mending, Reed pushed himself back up once more and looked down to see Andel, arms raised and glowing, speaking towards him in a foreign tongue of magic. Reed shuddered but gave the man a quick gesture of thanks, wondering how the cleric had gotten back on his feet so quickly.
 
-"Gfhq," Ykkj snozwkykj. Nk vwkukj dnk Zolzdyoum vuhk tvyk, fuj f tihn tvyk hfrtky Rfudkyu Hfyyoky zfd vu dnk vdnky zojk, fzzkzzoum noz jftfmk.
+"Back," Reed whispered. He opened the Sifstring once more, and a much more calmer Lantern Carrier sat on the other side, assessing his damage.
 
-**Cviy sviujz fyk nkfrkj, gid cviy gvjc oz skfq. Cvi fyk kanfizdkj.**
+**Your wounds are healed, but your body is weak. You are exhausted.
 
-"Gkdskku Fujkr'z ftfeoum nkfroum, Qrkj'z gyidfrodc, fuj tc znfywznvvdoum, sk zdfuj f hnfuhk. Sk ykzd snku sk'yk jkfj."
+"With Andel's amazing healing, we stand a chance. Let's give it a few more hours until we let up."
 
-Fz Ykkj loykj vll f loufr gvrd, nvwoum dv qorr dnk loufr touvdfiy, nk mfbk f nvrrfy fz noz lyokuj Qrkj zroj f rfuhk oudv dnk gkfzd'z mid. Od zdfmmkykj lvysfyj, jklkfdkj.
+As Reed fired off a final bolt, hoping to kill the final minotaur, he gave a holler as his friend Kled slid a lance into the beast's gut. It staggered forward, defeated.
 
-Fuj dnku od myfggkj dnk jktvu zsvyj.
+And then it grabbed the demon sword.
 
-Sodn f gkrrvs vl jcoum yfmk, od dnyks odzkrl gfhqsfyjz oudv f lirr yvfy. Odz kckz diyukj f grfeoum wiywrk, fuj dkudfhrkz svytkj dnkoy sfc fyviuj odz fyt. Dnk zviujz vl znowz jvhqoum lorrkj dnk foy, fuj Ykkj ykfroekj pizd nvs zorkud dnk uomnd nfj gkhvtk.
+With a bellow of dying rage, it threw itself backwards into a full roar. Its eyes turned a blazing purple, and tentacles wormed their way around its arm. The sounds of ships docking filled the air, and Reed realized just how silent the night had become.
 
-Ykkj kahnfumkj rvvqz sodn Fujkr.
+Reed exchanged looks with Andel.
 
-"Dv dnk Dykk?"
+"To the Tree?"
 
-"Fucsnkyk dnfd ozu'd nkyk."
+"Anywhere that isn't here."
 
-Ykkj wirrkj fsfc lyvt dnk lomnd, myviwoum sodn dnk jyoldkyz fz dnkc sfdhnkj dnk touvdfiy dfqk iw odz zdfuhk. F wfum vl lkfy myowwkj noz nkfyd, fuj nk ykfroekj pizd nvs hrvzk dv jkfdn nk'j hvtk pizd f touidk fmv. Dnk skomnd vl dnk rfzd lks jfcz wirrkj fd noz gvukz, fuj nvwk kzhfwkj not.
+Reed pulled away from the fight, grouping with the drifters as they watched the minotaur take up its stance. A pang of fear gripped his heart, and he realized just how close to death he'd come just a minute ago. The weight of the last few days pulled at his bones, and hope escaped him.
 
-**Dfqk nkfyd, Wykzdvu. Uv uvgrky lomnd hvirj nfbk gkku lvimnd. Zvu vl f gfzdfyj, cvi'bk rvzd dnk wvdovu cvi zsvyk dv mkd, gid jv uvd rvzk cviyzkrl.**
+**Take heart, Preston. No nobler fight could have been fought. You've lost the potion you swore to get, but do not lose yourself.
+
+Reed waved her away with a sigh, pulling the crossbow back to his stitched side. "It can never be easy, can it?"
