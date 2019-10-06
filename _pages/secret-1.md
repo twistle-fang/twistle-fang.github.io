@@ -10,61 +10,61 @@ permalink: /chaotics4.html
 <iframe src="https://open.spotify.com/embed/track/0hRJNNyjoIlRcrgYVypM2Y" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
 
-XGD SGTQXJSW
+THE CHAOTICS
 
-Xgd Sgtqxjsw eqvndb t ivqxgdvgqqb qe xgdjv qcp evddcjmm. Gqcdzdv, xgda cqymb wrdpb xgd pdhx gypbvdb adtvw tx dtsg qxgdv'w xgvqtxw. Pdzdv ctw wysg t zqmtxjmd fvqyr itpbdb, tpb pdzdv cjmm xgda rtvx.
+The Chaotics formed a brotherhood of their own freewill. However, they would spend the next hundred years at each other's throats. Never was such a volatile group banded, and never will they part.
 
-Xgdvd tvd eqyv cgq gqmb xgjw xjxmd:
+There are four who hold this title:
 
-Xgd Wpqcbqf, vymdv qe Pjemgdjn
-Iaxqv, vymdv qe Nywrdmgdjn
-Xgd Nqpl Twxdv, cgq qzdvwddw Ztptgdjn
-Tpb Fyjmbntwxdv, cgq gtw pq wta jp tpa ntxxdv jp Pjbtzdmmjv
+The Snowdog, ruler of Niflheim
+Bytor, ruler of Muspelheim
+The Monk Aster, who oversees Vanaheim
+And Guildmaster, who has no say in any matter in Nidavellir
 
-Xgdwd eqyv qpsd wxqqb xqfdxgdv xq sqpuydv xgd pqvxg, dtsg eqv xgdjv qcp ryvrqwdw. Xgda'zd dpbdb xgd ctvw idxcddp xgd fjtpxw tpb bvtfqpw, tpb pqc wdx xgdnwdmzdw yrqp dpsmtzdw jp xgdjv bqntjp. Dtsg cjdmbw t bjwfvtsdb imtbd, jniydb cjxg t wqym wxqpd xgtx stp fjzd ndp etxdw cqvwd xgtp bdtxg.
+These four once stood together to conquer the north, each for their own purposes. They've ended the wars between the giants and dragons, and now set themselves upon enclaves in their domain. Each wields a disgraced blade, imbued with a soul stone that can give men fates worse than death.
 
-Xgda tvd pqx fqbw, xgda ndvdma bdtm tnqpf xgdn.
+They are not gods, they merely deal among them.
 
-Xgda gtzd pq cdtlpdww, tpb cd gtzd pdzdv wddp bdtxg xqysg qpd.
+They have no weakness, and we have never seen death touch one.
 
-Xgd Sgtqxjsw vymd xgd Pqvxg, tpb wq jx wgtmm sqpxjpyd xq id ypxjm jx jw pqx.
+The Chaotics rule the North, and so it shall continue to be until it is not.
 
-XGD WPQCBQF
+THE SNOWDOG
 
-Xgd mtwx qe xgd Sgtqxjsw xq id stmmdb xq tvnw. Gd ejfgxw eqv xgd rvqxdsxjqp qe mjed, tpb xgd ryvwyjx qe lpqcmdbfd, iyx nqwx jnrqvxtpxma xq lddr Iaxqv tx ita. Vtjwdb tw t mqcma gypxwntp, Xgd Wpqcbqf qexdp gtvtwwdw gjw dpdnjdw ia tniywgjpf xgdn jp xgd eqvdwxw jp fyjwd, tpb wdmbqn vdxyvpw xq gjw xgvqpd. Gd vymdw Pjemgdjn iyx qpma qzdvwddw xgd Wsgqmtvw qe xgd Pqvxgdvp Mjfgxw. Xgd vdwx qe xgd dpsmtzd jw vyp ia gjw mqzd, Mtba Wxtvmjfgx. Cgjmd ypsqyxg, gd jw qexdp rqvxvtadb tw t fdpjyw.
+The last of the Chaotics to be called to arms. He fights for the protection of life, and the pursuit of knowledge, but most importantly to keep Bytor at bay. Raised as a lowly huntsman, The Snowdog often harasses his enemies by ambushing them in the forests in guise, and seldom returns to his throne. He rules Niflheim but only oversees the Scholars of the Northern Lights. The rest of the enclave is run by his love, Lady Starlight. While uncouth, he is often portrayed as a genius.
 
-Xgd Wpqcbqf cjdmbw xcq imtbdw, iqxg itwxtvb wcqvbw. Xgd ejvwx jw xgd imyd bjwfvtsdb imtbd. Jx wxtpbw tx eqyv eddx, tpb jxw wxqpd wxqvdw xgjvxa wqymw. Xgd wdsqpb imtbd jw Evdavwxtz, xgd Ljpf qe tmm Wcqvbw. Gd jw t wdpxjdpx evqwximtbd, eqypb ia Wpqcbqf tpb twwjwxjpf gjn xgvqyfgqyx gjw zdpxyvdw. Tw qe xgd rtwx xcq adtvw, gd gtw iddp fqpd. Idaqpb xgjw, xgd Wpqcbqf tmwq cdtvw t ntfjstm smqtl cgjsg tmmqcw gjn xq wgtrdwgjex. Gd cqzd xgd smqtl xqfdxgdv qzdv xgvdd adtvw, wdcjpf xqfdxgdv tpjntm rdmxw tpb jniyjpf gjw wxvqpfdwx ntfjsw jpxq xgdjv eyvw. Xgda wta gd wrdpbw nqvd xjnd jp idtwxwljp xgdp tw tp tfdb ntp.
+The Snowdog wields two blades, both bastard swords. The first is the blue disgraced blade. It stands at four feet, and its stone stores thirty souls. The second blade is Freyrstav, the King of all Swords. He is a sentient frostblade, found by Snowdog and assisting him throughout his ventures. As of the past two years, he has been gone. Beyond this, the Snowdog also wears a magical cloak which allows him to shapeshift. He wove the cloak together over three years, sewing together animal pelts and imbuing his strongest magics into their furs. They say he spends more time in beastskin then as an aged man.
 
-Xgd Wpqcbqf jw t fqqb tpb ypbdvwxtpbjpf ntp, tpb xgd nqwx eqvfjzjpf qe xgd Sgtqxjsw. Gqcdzdv, gd jw tmwq xgd nqwx vdfvdxeym, tpb xgd qpd cjxg xgd nqwx xq mqwd. Gd jw trrdtvw xgd nqwx nqvxtm qe xgd Sgtqxjsw, iyx jw sqpwjbdvdb xgd nqwx btpfdvqyw idstywd qe jx. Xgd Wpqcbqf'w fvdtxdwx wxvdpfxgw mjdw cjxg gjw tjb evqn tmmjdw tpb gjw rdqrmd, tpb gjw tijmjxa xq xgjpl uyjslma tpb vtxjqptmma xq cjp dzdva itxxmd. Gd jw ypbdedtxdb jp dzdva vdftvb, dzdp tftjpwx xgd bdnqp Iaxqv. Xgd edc etjmyvdw gd gtw wddp gtzd adx xq sqnd xq evyjxjqp.
+The Snowdog is a good and understanding man, and the most forgiving of the Chaotics. However, he is also the most regretful, and the one with the most to lose. He is appears the most mortal of the Chaotics, but is considered the most dangerous because of it. The Snowdog's greatest strengths lies with his aid from allies and his people, and his ability to think quickly and rationally to win every battle. He is undefeated in every regard, even against the demon Bytor. The few failures he has seen have yet to come to fruition.
 
-Gd gtw qpd btyfgxdv, Mtba Rtvgdmjqp, cgq ejfgxw cjxg xgd Pjpd.
+He has one daughter, Lady Parhelion, who fights with the Nine.
 
-IAXQV
+BYTOR
 
-Xgd bdnqp ljpf, Iaxqv, smtjndb gjw rmtpd qpma xgvqyfg xgd tsxw qe xgd Sgtqxjsw sqnijpdb. Gd xgjvwxw eqv imqqb nqvd xgtp tpaxgjpf dmwd, iyx jw ldrx jp mjpd ia Xgd Wpqcbqf, tmijdx rqqvma. Qpsd t rtmtbjp, Iaxqv vdpqypsdb gjw ctaw tpb wqmb gjw iqba eqv xgtx qe tp ypwrdtltimd eqvn. Jx jw jp xgjw eqvn xgtx gd pqc vdwjbdw, tpb gd wrdpbw gjw btaw tnqpf gjw njpjqpw jp Nywrdjmgdjn, ijbjpf gjw xjnd xq vjwd tftjp. Cgjmd zjsjqyw, gd jw qexdp rqvxvtadb tw xtnd.
+The demon king, Bytor, claimed his plane only through the acts of the Chaotics combined. He thirsts for blood more than anything else, but is kept in line by The Snowdog, albiet poorly. Once a paladin, Bytor renounced his ways and sold his body for that of an unspeakable form. It is in this form that he now resides, and he spends his days among his minions in Muspeilheim, biding his time to rise again. While vicious, he is often portrayed as tame.
 
-Iaxqv cjdmbw xgd fvddp bjwfvtsdb imtbd. Jx wxtpbw tx ejzd eddx, tpb jxw wxqpd wxqvdw njmmjqpw qe wqymw. Cgdp xgd imtbd qpsd wxqqb dnrxa, jx jw wtjb xgtx Iaxqv qpsd xvtrrdb t bdnjfqb jp jxw gjmx, vtxgdv xgtp ejfgx xgd ntp qpd-qp-qpd. Gjw cdtrqp qe sgqjsd, xgqyfg, jw Nqxgvjpmtc, xgd Uyddp qe tmm Wcqvbw. Nqxgvjpmtc jw vdwrqpwjimd eqv xgd bdwxvysxjqp qe qpd qe xgd ivtpsgdw qe Affbvtwjm, xgqyfg pqx xgd qpd xgtx aqy cqymb xgjpl.
+Bytor wields the green disgraced blade. It stands at five feet, and its stone stores millions of souls. When the blade once stood empty, it is said that Bytor once trapped a demigod in its hilt, rather than fight the man one-on-one. His weapon of choice, though, is Mothrinlaw, the Queen of all Swords. Mothrinlaw is responsible for the destruction of one of the branches of Yggdrasil, though not the one that you would think.
 
-Iaxqv stppqx id gtvndb ia ejvd, wxddm, tpb stppqx bvqcp. Gd nywx id eqyfgx cjxg cjx qv gtpb. Xgdvd jw pq wdpwd xq gjw bdwxvysxjqp, pqv cjmm tpaxgjpf wtxd gjw trrdxjxd. Gd sqpxjpydw xq iyjmb gjw bqntjp.
+Bytor cannot be harmed by fire, steel, and cannot drown. He must be fought with wit or hand. There is no sense to his destruction, nor will anything sate his appetite. He continues to build his domain.
 
-Gd gtw sqypxmdww sgjmbvdp, iyx ljmmw xgdn tmm. Qpma xgvdd gtzd ntptfdb xq dmybd gjw xqysg: Ljbt xgd Wxvqpf, Rvdwxqp xgd Tsd, tpb Mqftp xgd Mysl-Xqysgdb. Xgda ejfgx cjxg xgd Pjpd.
+He has countless children, but kills them all. Only three have managed to elude his touch: Kida the Strong, Preston the Ace, and Logan the Luck-Touched. They fight with the Nine.
 
-XGD NQPL TWXDV
+THE MONK ASTER
 
-Gjw ptnd jw yplpqcp, iyx gd jw wjnrma lpqcp tw Twxdv. Xgd nqplw cdvd tnqpf xgd ejvwx nqvxtmw xq wdxxmd jp xgd bjzjpd vdtmnw qe xgd Pqvxg, tpb Twxdv tnqpf xgdn tw tp qvrgtpdb sgjmb. Gd wqyfgx xq wdxxmd xgd wuytiimjpfw qe ndp, tpb xyvpdb gjw ftod xq xgd nqypxtjpw. Xgvqyfg xgd tsxw qe xgd Sgtqxjsw, gd stnd xq dpb xgd ctv idxcddp xgd Bvtfqpw tpb xgd Fjtpxw, tpb wrqld xgd ejptm kybfdndpx yrqp xgdn iqxg. Pqc gd vdwjbdw jp xgd nqptwxdva qp Ztptgdjn, cgdvd tmm sqnd xq wddl gjw fyjbtpsd tpb wdvzd idpdtxg gjn. Cgjmd jpbjeedvdpx, gd jw qexdp rqvxvtadb tw sqppjzjpf.
+His name is unknown, but he is simply known as Aster. The monks were among the first mortals to settle in the divine realms of the North, and Aster among them as an orphaned child. He sought to settle the squabblings of men, and turned his gaze to the mountains. Through the acts of the Chaotics, he came to end the war between the Dragons and the Giants, and spoke the final judgement upon them both. Now he resides in the monastery on Vanaheim, where all come to seek his guidance and serve beneath him. While indifferent, he is often portrayed as conniving.
 
-Xgd Nqpl Twxdv vduyjvdw pq imtbdw, iyx gd gqmbw xgd vdb bjwfvtsdb imtbd. Jx wxtpbw tx eqyv eddx xtmm, tpb jxw wxqpd wxqvdw pq wqymw. Xgd Nqpl Twxdv jw etnqyw gjw xdsgpjuyd jp qrdp-gtpb ejfgxjpf. Wq mqpf tw gd jw timd xq mta t gtpb yrqp aqy, gd stp dpb aqyv mjed tx tpa rqjpx cjxgjp xgd pdhx cddl, pq ntxxdv xgd bjwxtpsd idxcddp aqy xcq. Tpa cqypb jpemjsxdb yrqp gjn trrdtvw pqx qpma qp gjw twwtjmtpx'w emdwg, iyx qp xgdjv ljp tpb qeewrvjpf eqv fdpdvtxjqpw xq sqnd.
+The Monk Aster requires no blades, but he holds the red disgraced blade. It stands at four feet tall, and its stone stores no souls. The Monk Aster is famous his technique in open-hand fighting. So long as he is able to lay a hand upon you, he can end your life at any point within the next week, no matter the distance between you two. Any wound inflicted upon him appears not only on his assailant's flesh, but on their kin and offspring for generations to come.
 
-Cgjmd pqpd qe xgd Sgtqxjsw stp id eqypb twmddr, xgd Nqpl Twxdv jw xgd qpma qe xgd eqyv cgq tmwq eqvfqdw eqqb tpb bvjpl. Jx jw wtjb xgtx gjw wjfgx rjdvsdw pqx qpma xgd iqba, iyx xgd njpb. Gd wgqcw pq jpxdvdwx jp tpaxgjpf idwjbdw xgd xtwl qe kybfdndpx tpb xgd qzdvwjfgx qe t wntmm ftvbdp jp xgd njbbmd qe xgd nqptwxdva.
+While none of the Chaotics can be found asleep, the Monk Aster is the only of the four who also forgoes food and drink. It is said that his sight pierces not only the body, but the mind. He shows no interest in anything besides the task of judgement and the oversight of a small garden in the middle of the monastery.
 
-Gd gtw xgvdd btyfgxdvw, cgqwd njpbw tvd eywdb xqfdxgdv xgvqyfg xgd Bctvzdp fjex qe Wjewxvtpb. Xgda tvd xgd Btyfgxdvw qe Emqcdvw, lpqcp jpbjzjbytmma tw Ntvtftp, Xtj, tpb Wgtp, tpb xgda ejfgx cjxg xgd Pjpd.
+He has three daughters, whose minds are fused together through the Dwarven gift of Sifstrand. They are the Daughters of Flowers, known individually as Maragan, Tai, and Shan, and they fight with the Nine.
 
-FYJMBNTWXDV
+GUILDMASTER
 
-Mjxxmd jw lpqcp tiqyx Fyjmbntwxdv tpb gjw vdmtxjqp xq xgd Sgtqxjsw, idaqpb gjw tsxw tnqpf xgdn. Xgd ejvwx wxqva qe gjn vdsqypxw qe gjw txxtsl qp Twxdv'w nqptwxdva cgdp xgda iqxg cdvd aqypf. Gjw nqxjzdw tvd yplpqcp, idaqpb gjw fvddb. Gjw etsd jw wdmbqn wddp, tpb sqpemjsxjpf tssqypxw tvd fjzdp. Gd jw jbdpxjejdb, jpwxdtb, ia gjw cdtrqpw tpb gjw gtpbw: qpd bjrrdb jp wjmzdv, tpb xgd qxgdv jp fqmb. Xgdvd jw pq rtxxdvp qp djxgdv gtpb, pqv tpa jnrdvedsxjqp jp xgd sqtxjpf, tpb xgda nqzd wjmdpxma. Fyjmbntwxdv wyrrqwdbma vdwjbdw jp Pjbtzdmmjv tpb sqpxvqmw xgd xqcp, xgqyfg pqpd cjmm tbnjx jx. Cgjmd nawxdvjqyw, Fyjmbntwxdv jw rqvxvtadb tw rvqyb.
+Little is known about Guildmaster and his relation to the Chaotics, beyond his acts among them. The first story of him recounts of his attack on Aster's monastery when they both were young. His motives are unknown, beyond his greed. His face is seldom seen, and conflicting accounts are given. He is identified, instead, by his weapons and his hands: one dipped in silver, and the other in gold. There is no pattern on either hand, nor any imperfection in the coating, and they move silently. Guildmaster supposedly resides in Nidavellir and controls the town, though none will admit it. While mysterious, Guildmaster is portrayed as proud.
 
-Fyjmbntwxdv cjdmbw xgd admmqc bjwfvtsdb imtbd. Jx wxtpbw tx ejzd eddx xtmm, tpb gqmbw qpd wqym. Xgvqyfg pq bjwsdvptimd ndtpw, gd jw tmwq timd xq sqpxvqm t wxqvn qe pddbmdw. Nqwx sqpevqpxtxjqpw cjxg Fyjmbntwxdv idfjp cjxg t pddbmd tftjpwx xgd uydwxjqpdv'w dad. Jp ctvxjnd, gd ctw lpqcp eqv ctmljpf jpxq itxxmdw stwytmma cjxg ejzd gypbvdb pddbmdw emyvvjdb tvqypb gjn, vdbysjpf tpaqpd jp xgd cta xq t imqqbjdb rymr. 
+Guildmaster wields the yellow disgraced blade. It stands at five feet tall, and holds one soul. Through no discernable means, he is also able to control a storm of needles. Most confrontations with Guildmaster begin with a needle against the questioner's eye. In wartime, he was known for walking into battles casually with five hundred needles flurried around him, reducing anyone in the way to a bloodied pulp. 
 
-Xgqyfg sqpwjbdvdb xgd cdtldwx qe xgd Sgtqxjsw, Fyjmbntwxdv jw tmwq xgd nqwx jvvtxjqptm. Cgdvdtw Xgd Wpqcbqf jw fyjbdb ia cgtx jw vjfgx, Iaxqv ia gjw imqqbmywx, tpb Twxdv ia gjw kybfdndpx… Fyjmbntwxdv'w ctpxw tpb pddbw sgtpfd sqpwxtpxma. Tw wysg, gd gtw t gjfg mdzdm qe txxdpbtpxw cgq wdvzd gjn jp wdsvdsa. Xgdwd rdqrmd stp id tpaqpd, wjpsd Fyjmbntwxdv'w cgjnw stp sgtpfd tpb tmjfp cjxg dzdp xgd nqwx bdzqyx ntp'w uydwx. Wqnd wta gjw wdsvdsa jw t evqpx, iyx qxgdvw idmjdzd gd gjbdw wdsvdxw evqn xgd qxgdv Sgtqxjsw tpb  ntldw gjnwdme mqcmjdv xgtp gd xvyma jw.
+Though considered the weakest of the Chaotics, Guildmaster is also the most irrational. Whereas The Snowdog is guided by what is right, Bytor by his bloodlust, and Aster by his judgement… Guildmaster's wants and needs change constantly. As such, he has a high level of attendants who serve him in secrecy. These people can be anyone, since Guildmaster's whims can change and align with even the most devout man's quest. Some say his secrecy is a front, but others believe he hides secrets from the other Chaotics and  makes himself lowlier than he truly is.
 
-Gd gtw xcq sgjmbvdp. Pqxgjpf jw lpqcp tiqyx xgdn idwjbdw xgdjv ntwlw qe wjmzdv tpb fqmb. Xgda ejfgx cjxg xgd Pjpd.
+He has two children. Nothing is known about them besides their masks of silver and gold. They fight with the Nine.
