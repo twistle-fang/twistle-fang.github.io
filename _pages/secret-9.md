@@ -7,47 +7,47 @@ image: /images/taiPic.png
 permalink: /tai2.html
 ---
 
-Vhe Sed Npol sisemt mefv vhe gisdeou, mev impoe vhe vpyo pf Uhexitmi. Deuqjve vhe mive hpws pf ojghv, vsixemmesu iqqeised po vhe spid behjod hjn iod fpmmpyed hjn po hju kpwsoet, cwsjpwu pf yhiv vhju cpwmd neio. Uexesim femm jo mjoe yjvh hju fppvuvequ jo vhe dwuvt spid, ivvenqvjog vp fpmmpy hjn uveq-fps-uveq. Pvhesu leqv i gseiv deim pf djuvioce iyit iod leqv vhejs heidu bpyed. Vhese yiu ujmeoce impog vhe yit pwv pf Uhexitmi, iod vhe sexeseoce fps vhe pcciujpo cwv vhspwgh vhe njuvt ojghv jo i hiat bmeod pf njsvh iod feis.
+The Red Monk rarely left the gardens, let alone the town of Shevayla. Despite the late hour of night, travellers appeared on the road behind him and followed him on his journey, curious of what this could mean. Several fell in line with his footsteps in the dusty road, attempting to follow him step-for-step. Others kept a great deal of distance away and kept their heads bowed. There was silence along the way out of Shevayla, and the reverence for the occasion cut through the misty night in a hazy blend of mirth and fear.
 
-Oeismt vyeovt meigweu pwvujde pf vpyo, vhe cjvjaeou hid fimmeo iyit iod imm yhp senijoed yese vhpue fspn vhe Npoiuvest pf Iuves. Jo vhe Sed Npol'u cpnqiot fpmmpyed ujz fppvupmdjesu, hiod-vsijoed iod erwim yjvh vhe beuv fspn iot seimn pwvujde Xioihejn. Vhet yimled impog jo gppd uqjsjv, leeqjog cpoxesuivjpo inpog vhenuemxeu iu bspvhesu iod ujuvesu pf vhe npoiuvest uhpwmd. Yhjme cpnfpsvibme yiu opv pfveo i vesn wued vp deucsjbe iot semivjpo yjvh segisdu vp i Chipvjc, vhe fppvupmdjesu yese iv meiuv qisdpoed fspn vhe fpsnimjvjeu iuupcjived yjvh vhe Sed Npol. Vhet yese cpoujdesed vhe npse miz pf vhe biod, iod iu uwch vhejs cpoxesuivjpo po vhe kpwsoet yiu qisdpoed.
+Nearly twenty leagues outside of town, the citizens had fallen away and all who remained were those from the Monastery of Aster. In the Red Monk's company followed six footsoldiers, hand-trained and equal with the best from any realm outside Vanaheim. They walked along in good spirit, keeping conversation among themselves as brothers and sisters of the monastery should. While comfortable was not often a term used to describe any relation with regards to a Chaotic, the footsoldiers were at least pardoned from the formalities associated with the Red Monk. They were considered the more lax of the band, and as such their conversation on the journey was pardoned.
 
-Jo fspov pf vhen, hpyexes, yese fpws mioveso cissjesu. Vhet uqpsved vhe uine qmijved pwvfjv iu vhe fppvupmdjesu, bwv vhejs higgisd iqqeisioce nide vhejs qpujvjpo inpog vhe gspwq pbxjpwu. Deid ujmeov, vhe mioveso cissjesu leqv vhe mjghvu hemd qesfecvmt bimioced iu vhet yimled. Vhejs imm-vpp-vhjo fsineu yese hwoched pxes iu vhet yimled, bwv vhejs bpdjeu senijoed uveidfiuv iod qpjued iu vhet uhwffmed impog. Vhe nidoeuu fspn vhejs eteu yiu uveemed bt decideu pf vsijojog, iod vhet djd vhejs kpb yjvh vhe wqnpuv gsivjvwde. Yheseiu vhe fppvupmdjesu hid gijoed i hpne fspn vhe Sed Npol, vhe mioveso cissjes hid gijoed vhejs njodu bicl. Vhese yiu i sexeseoce fps vhe Chipvjc vhiv vhet hemd cmpue, iod iot uesxjce yiu vp be dpoe yjvhpwv cpnqmijov.
+In front of them, however, were four lantern carriers. They sported the same plaited outfit as the footsoldiers, but their haggard appearance made their position among the group obvious. Dead silent, the lantern carriers kept the lights held perfectly balanced as they walked. Their all-too-thin frames were hunched over as they walked, but their bodies remained steadfast and poised as they shuffled along. The madness from their eyes was steeled by decades of training, and they did their job with the upmost gratitude. Whereas the footsoldiers had gained a home from the Red Monk, the lantern carrier had gained their minds back. There was a reverence for the Chaotic that they held close, and any service was to be done without complaint.
 
-Hpyexes, jv yiu vhe vhsee tpwog ypneo jo fspov pf vhen yhp vhe kpwsoet hid beeo nide fps. Vhe Sed Npol djd opv cpoxesue yjvh vhen, bwv vhet yese seidt vp uqeil iv i npneov'u opvjce. Vhe vhsee ypneo, dseuued jo fjoe ujmlu iod cinbsjc, yimled jo utoc. Vhejs uvequ, vhejs bseivhjog, exeo vhejs seicvjpou mjoed wq iu vhet fpmmpyed vhe uine qivh, imm dpyo vp cmpclypsl ujnqmjcjvt jo vhe yit vhet npxed. Vhe veo vhiv seujded behjod vhe mjoe fpwod vhenuemxeu yivchjog vhe ypneo yheo vhe ojghv gsey mpog, iod opoe inpog vhen cpwmd hemq bwv feem i vjoge pf iye iv vhe cpnqmeveoeuu pf vhe ujbmjogu imm icvjog vpgevhes. Exeo vhpue inpog vhe hjgheuv qpujvjpou pf vhe npoiuvest uemdpn uiy vhe Diwghvesu pf Fmpyesu, iod feyes uvjmm uiy vhen dpjog iotvhjog ezceqv ujvvjog jo vhejs fivhes'u chinbesu.
+However, it was the three young women in front of them who the journey had been made for. The Red Monk did not converse with them, but they were ready to speak at a moment's notice. The three women, dressed in fine silks and cambric, walked in sync. Their steps, their breathing, even their reactions lined up as they followed the same path, all down to clockwork simplicity in the way they moved. The ten that resided behind the line found themselves watching the women when the night grew long, and none among them could help but feel a tinge of awe at the completeness of the siblings all acting together. Even those among the highest positions of the monastery seldom saw the Daughters of Flowers, and fewer still saw them doing anything except sitting in their father's chambers.
 
-Ifves uexesim hpwsu pf yimljog, vhe Sed Npol uvpqqed jo vhe njddme pf vhe spid iod giaed wq iv vhe ult. I npneov qiuued, iod vheo uexesim swojc sjogu iqqeised po vhe gspwod jo fspov pf hjn. Jo vhe xiuv deuesv pf Xioihejn, uiodu begio vp qppm vpgevhes icspuu vhe sjogu, iod fspn vhen ispue i gseiv gpmen, mppnjog pxes imm vhpue jo cpnqiot. Jvu eteu yese hpmmpy, bejog pf op eovjvt lopyo vp nio, iod exest mpog uhidpy ciuv bt oeisbt uvswcvwseu vwsoed vp qpjov vpyisdu jv.
+After several hours of walking, the Red Monk stopped in the middle of the road and gazed up at the sky. A moment passed, and then several runic rings appeared on the ground in front of him. In the vast desert of Vanaheim, sands began to pool together across the rings, and from them arose a great golem, looming over all those in company. Its eyes were hollow, being of no entity known to man, and every long shadow cast by nearby structures turned to point towards it.
 
-"Sed Chipvjc," jv giuqed, ucsiqjog iv jvu fice yjvh uiodt cmiyu. "Tpw cpne vp ne?"
+"Red Chaotic," it gasped, scraping at its face with sandy claws. "You come to me?"
 
-Vhe npol Iuves uvppd iv vhe heid pf vhe qisvt, bpdt viwv iu he uvspde fpsyisd. Hju eteu mppled iujde vhe gpmen iu he uqple.
+The monk Aster stood at the head of the party, body taut as he strode forward. His eyes looked aside the golem as he spoke.
 
-"Vhe cisixiou niljog vhejs yit icspuu vhe eiuveso qivhu hixe beeo ivvicled. Tpws njojpou ise uwuqecved fps vyemxe iccpwovu pf jnqedjog vside, iod uexeovt poe deivhu ciwued po vhe vsijm."
+"The caravans making their way across the eastern paths have been attacked. Your minions are suspected for twelve accounts of impeding trade, and seventy one deaths caused on the trail."
 
-Iu vhe npol uqple, vhe fppvneo iod mioveso cissjesu behjod hjn femm vp vhejs loeeu jo i cppsdjoived icvjpo. Vhe fpsce pf vhejs npxeneov yiu iwdjbme, ueodjog pwv i uhpclyixe pf uiod. Vhe gpmen, njghvt iu he yiu, uwol hju uyjsmjog fpsn fwsvhes bicl jovp vhe uiod fspn yhjch he yiu fpsned.
+As the monk spoke, the footmen and lantern carriers behind him fell to their knees in a coordinated action. The force of their movement was audible, sending out a shockwave of sand. The golem, mighty as he was, sunk his swirling form further back into the sand from which he was formed.
 
-"J in op mpoges jo cpovspm pf nt chjmdseo," jv hjuued bicl. Jvu hpmmpy eteu uqmjv iod nwmvjqmjed, seuhiqjog iu jvu ioges iod qiojc gsey. "J hixe op seuqpoujbjmjvt pxes yhiv vhet dp."
+"I am no longer in control of my children," it hissed back. Its hollow eyes split and multiplied, reshaping as its anger and panic grew. "I have no responsibility over what they do."
 
-"Yhiv i qpps ezcwue,"Iuves cmwcled, qseuujog hju bppv jovp vhe deuesv uiod. "Bwv J cpwmd uee vhiv isgwneov cpnjog fspn i njme iyit. Tpws kwdgeneov hiu beeo qiuued."
+"What a poor excuse,"Aster clucked, pressing his boot into the desert sand. "But I could see that argument coming from a mile away. Your judgement has been passed."
 
-Vhe mioveso cissjesu bpyed fwsvhes, bwv vhe fppvupmdjesu spue fspn behjod vhe npol. Jo i uyjfv icvjpo, vhet qwmmed vhejs uypsdu fspn vhejs uheivheu jo wojupo, fmpwsjuhed, iod hemd vhe bmideu mpy.
+The lantern carriers bowed further, but the footsoldiers rose from behind the monk. In a swift action, they pulled their swords from their sheathes in unison, flourished, and held the blades low.
 
-"Fps fijmjog vp uwqesxjue vhe xjpmeov icvjpou pf tpws chjmdseo fps vhe qiuv vyp ueiupou, J hixe decjded vp djusegisd imm xjpmeov icvjpou pf nt chjmdseo fps vhe oezv vyp njowveu."
+"For failing to supervise the violent actions of your children for the past two seasons, I have decided to disregard all violent actions of my children for the next two minutes."
 
-Vhe gpmen cseiled biclyisdu umpymt, wouwse pf yhiv vp nile pf vhe ujvwivjpo. Vhe hpsde pf fpmmpyesu behjod vhe npol uveqqed biclyisdu, seuqecvfwmmt leeqjog djuvioce, iu vhe vhsee diwghvesu pf fmpyesu uveqqed fpsyisd. Vhet uqple poe iv i vjne, bwv imyitu jo uerweoce:
+The golem creaked backwards slowly, unsure of what to make of the situation. The horde of followers behind the monk stepped backwards, respectfully keeping distance, as the three daughters of flowers stepped forward. They spoke one at a time, but always in sequence:
 
-"Vyp njowveu?"
-"Yemm vhiv'u hisdmt uqpsvjog."
-"Gjxe wu vhsee yeelu iod ye'mm nile hjn ujog."
+"Two minutes?"
+"Well that's hardly sporting."
+"Give us three weeks and we'll make him sing."
 
-Vhe diwghvesu uveqqed fpsyisd, fppvuvequ echped deuqjve vhejs bise feev umjqqjog vhspwgh uiod. Vhe cppm pf vhe deuesv ojghv fmed, iod jo jvu qmice spue i dst heiv, uyjsmjog ispwod exestpoe. Vhe npol Iuves gixe i hwff iod leqv hju giae vsijoed po vhe gpmen.
+The daughters stepped forward, footsteps echoed despite their bare feet slipping through sand. The cool of the desert night fled, and in its place rose a dry heat, swirling around everyone. The monk Aster gave a huff and kept his gaze trained on the golem.
 
-"Vyp njowveu, bsivu."
+"Two minutes, brats."
 
-Vhe diwghvesu uvspde fpsyisd jo wojupo, vhe poe jo vhe ceoves dsiyjog fpsvh vyp uviffu fspn hes bicl.
+The daughters strode forward in unison, the one in the center drawing forth two staffs from her back.
 
-"Xest yemm."
-"Io ete fps io ete."
-"Uexeovt poe cwvu fps uexeovt poe deivhu."
+"Very well."
+"An eye for an eye."
+"Seventy one cuts for seventy one deaths."
 
 
 <iframe src="https://open.spotify.com/embed/playlist/2DF3gmnC43DGcoOrMJ7pmw" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
