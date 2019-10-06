@@ -8,87 +8,97 @@ permalink: /inverted4.html
 ---
 <iframe src="https://open.spotify.com/embed/track/0s8FALD89y7zMy2S8R7MOC" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-“Aha vpy gbru wpmbxghof?”
+“Did you hear something?”
 
-R cbi pc xgb ipukbuw rlpofwhab xgb mhobu lppkba yq, tyx xgb mrjpuhxv dpoxhoyba xp irlk po. Bzbuvpob irw wkhxxhwg opirarvw, bwqbdhrllv ihxg xgb abra yq roa uprmhof rtpyx.
+A few of the workers alongside the miner looked up, but the majority continued to walk on. Everyone was skittish nowadays, especially with the dead up and roaming about.
 
-Xgb vpyofbwx mhobu kbqx ghw bvbw xurdhof rupyoa xgb xyoobl xgpyfg, gplahof ghw lroxbuo rw cru yq rw ghw wduriov lhmtw ipyla rllpi. R cbi pc ghw dpmqrohpow gbla yq xgbhuw ho xroabm, gpqhof xp gblq.
+The youngest miner kept his eyes tracing around the tunnel though, holding his lantern as far up as his scrawny limbs would allow. A few of his companions held up theirs in tandem, hoping to help.
 
-“Wpmbxhmbw irxbu auhqw apio cupm xgb qhqbw pc xgb dhxv,” pob pccbuba. “Mv tupxgbu gblqba lrv xgpwb qhqbw tyx gb wrvw xgbv rho’x xgrx fppa vbx. Xgb rsyraydx trublv cyodxhpow rtpzb fupyoa, roa xgb ibll wvwxbm rho’x mydg tbxxbu. Xgb irxbu dpmbw yq, tyx r lpx pc hx dpmbw trdk apio tbcpub hx ubrdgbw igbub hx obbaw xp tb…”
+“Sometimes water drips down from the pipes of the city,” one offered. “My brother helped lay those pipes but he says they ain’t that good yet. The aquaduct barely functions above ground, and the well system ain’t much better. The water comes up, but a lot of it comes back down before it reaches where it needs to be…”
 
-R cbi pxgbuw myumyuba xgbhu rfubbmbox roa xppk xgrx rwwyurodb, qyxxhof xgbhu lroxbuow trdk apio roa xuyafhof rgbra. Xgb mhobu rx xgb trdk wxrvba po bafb, xgpyfg.
+A few others murmured their agreement and took that assurance, putting their lanterns back down and trudging ahead. The miner at the back stayed on edge, though.
 
-“Gpi pcxbo ap vpy fyvw dpmb apio gbub?” gb rwkba, bvbw aruxhof rupyoa xgb xyoobl rw gb irlkba. “H rho’x obzbu wbbo rov pxgbu mhobuw dpmb apio xghw lpi.”
+“How often do you guys come down here?” he asked, eyes darting around the tunnel as he walked. “I ain’t never seen any other miners come down this low.”
 
-“Ibll vpy rho’x obzbu mrab r fppa tydk tbcpub, opi grzb vr?” pob pc xgb mhobuw lryfgba, xpwwhof rupyoa ghw qhdk rw gb irlkba. “Xgb Fpla Dgrpxhd qrvw ibll, fpaw tlbww xgb mro, tyx xgbub’w tbxxbu mpobv xp tb mrab ihxg pl’ Fubbohb.”
+“Well you ain’t never made a good buck before, now have ya?” one of the miners laughed, tossing around his pick as he walked. “The Gold 
 
-Xgb vpyofbwx mhobu wbbmba xp whok cyuxgbu hoxp ghw pzbuwheba yohcpum. “Vpy bzbu wbb ghm?”
+Chaotic pays well, gods bless the man, but there’s better money to be made with ol’ Greenie.”
 
-“Xgb Fubbo Dgrpxhd? Org. Ib jywx rll ipkb yq ihxg xgb wrmb wdupllw rx pyu appuwxbqw wrmb rw vpy. Tbojh pzbu xgbub irw xgb chuwx, gb fpx puabuw xp uyo apio gbub obrulv r mpoxg rfp. Gb dpzbuba yq rtpyx r mhlb pc xgb chuwx wxubxdg pc lroa jywx ihxg wpmb mhwqlrdba avormhxb.”
+The youngest miner seemed to sink further into his oversized uniform. “You ever see him?”
 
-R mro cupm xgb cupox pc xgb qrdk drllba trdk, “Fpx qrha xiblzb arvw irfbw cpu hx xpp!”
+“The Green Chaotic? Nah. We just all woke up with the same scrolls at our doorsteps same as you. Benji over there was the first, he got orders to run down here nearly a month ago. He covered up about a mile of the first stretch of land just with some misplaced dynamite.”
 
-Xgb mbo rll lryfgba, xurahof wohab ubmrukw. Xgb vpyofbwx mhobu irw qpkba roa qupaaba tv xgb pxgbuw obnx xp ghm, xbllhof ghm xp lhfgxbo yq. Ho xgb mpmbox pc mhuxg, gb lpwx ghw cbru roa wxbqqba qupyalv rlpofwhab xgb troa. Gb irw fphof xp fp gpmb roa tuhof xgb mhwwyw r fppa ahoobu xpohfgx. Xgb abmpo ipyla qrv ibll cpu r lhxxlb dgrpw apio rx xgb mhobw roa-
+A man from the front of the pack called back, “Got paid twelve days wages for it too!”
+The men all laughed, trading snide remarks. The youngest miner was poked and prodded by the others next to him, telling him to lighten up. In the moment of mirth, he lost his fear and stepped proudly alongside the band. He was going to go home and bring the missus a good dinner tonight. The demon would pay well for a little chaos down at the mines and-
 
-Xgb mhobu cbll xp xgb fupyoa, trwghof rfrhowx ro hozhwhtlb irll gplahof ghm cupm qupfubwwhof cyuxgbu. Hx irw lhkb r qrob pc flrww wqubra pyx tbcpub ghm. Xgb pxgbu mhobuw irlkba po, tyx gb dpylao’x qubww poiruaw. Gb xgubi ghmwblc rfrhowx xgb flrww, kopdkhof chuwx roa vbllhof roa xgbo chorllv trofhof rfrhowx hx roa wdubrmhof cpu wpmbpob xp opxhdb ghm.
+The miner fell to the ground, bashing against an invisible wall holding him from progressing further. It was like a pane of glass spread out before him. The other miners walked on, but he couldn’t press onwards. He threw himself against the glass, knocking first and yelling and then finally banging against it and screaming for someone to notice him.
 
-Ho abwqburxhpo, gb xyuoba rupyoa xuvhof xp choa xgb wpyudb pc xgb mrfhd. Ho xgb lrmqlhfgx, jywx r flhmmbu pc fpla rqqbruba cru rtpzb ghm. Gb gbla yq ghw lroxbuo, wxurhohof xp wbb.
-Po xgb xpq pc xgb xyoobl irllw, r lpob chfyub irlkba yqwhab-apio. Xgbhu dlprk ahwptbvba furzhxv ihxg xgbm, wbxxlhof po xgb uppc pc xgb drzb rw xgbv wlpilv mrab xgbhu irv xpiruaw ghm. Xgb chfyub irw trxgba ho wgrapiw, qhdkhof xgbhu irv rmpof xgb wxrlrfxhxbw ihxg wydg brwb xgrx xgb mhobu irw dpozhodba xgbv ibub lhxxlb mpub xgro ro hllywhpo pu r wqbdxub. Roa xgbhu crdb, po xgbhu crdb wgpob r drx mrwk pc qyub fpla, xyuoba hoxp r tyuox gyb tv xgb chublhfgx.
+In desperation, he turned around trying to find the source of the magic. In the lamplight, just a glimmer of gold appeared far above him. He held up his lantern, straining to see.
 
-Xgb mhobu’w gbrux dryfgx rw gb irxdgba xgb chfyub rqquprdg. Gb gra tupkbo xgb lri. 
-Gb xihwxba rupyoa, trofhof roa wdubrmhof po xgb flrww irll podb mpub, tyx xgb pxgbu ipukbuw ibub obrulv pyx pc whfgx. Rll xgrx ubmrhoba irw xgb obru whlbox wxbqqhof pc xgb chfyub rw hx rqquprdgba.
-Ho xgb tlhok pc xgb bvb, hx abwdboaba yqpo ghm.
+On the top of the tunnel walls, a lone figure walked upside-down. Their cloak disobeyed gravity with them, settling on the roof of the cave as they slowly made their way towards him. The figure was bathed in shadows, picking their way among the stalagtites with such ease that the miner was convinced they were little more than an illusion or a spectre. And their face, on their face shone a cat mask of pure gold, turned into a burnt hue by the firelight.
 
-- - - 
+The miner’s heart caught as he watched the figure approach. He had broken the law. 
 
-Ho xgb abqxgw pc xgb mhobw, r lpob airuzbo ipmro wgycclba rupyoa ho xgb Dgrmtbu pc Roxhsyhxhbw. Hx irw gbu arv pcc, ighdg wgb gra tbbo wrzhof yq cpu xgbwb qrwx xiblzb vbruw. Arv rcxbu ohfgx, Zbsho gra kbqx xuyb xp gbu ayxhbw pc wbuzhof xgb Fpaabww Gbl, bzbo wqpuxhof xgb abhxhbw crmpyw lppkw roa wrduhchdhof xgb lbcx grlc pc gbu tpav xp tb dpowymba tv xgb mhxbw pc xgb mhobw. Polv xgb mpwx abahdrxba ibub fhzbo wydg xgb quhzhlbfb pc xgb grlc-tpav, roa Zbsho irw opx polv abzpyx ho gbu ipuk tyx apytlv rw ahlhfbox.
+He twisted around, banging and screaming on the glass wall once more, but the other workers were nearly out of sight. All that remained was the near silent stepping of the figure as it approached.
 
-Gpibzbu, rcxbu vbruw yqpo vbruw pc mrorfhof wgb gra mrorfba xp wbx rwhab r wqpx pc xhmb cpu gbuwblc. Wgb ihwgba xp lbrzb xgb yoabuipula, rx lbrwx podb xghw abdrab, xp fp furt r dppl flrww pc rlb pu wqboa xgb ohfgx tv xgb lrkbwhab. Wgb irw uyablv hoxbuuyqxba ighlb qrdkhof, gpibzbu, tv r troa pc wqhuhxw howhwxhof xgrx wgb ubxyuo roa abrl ihxg xgb lrxbwx hoxuyabu.
+In the blink of the eye, it descended upon him.
 
-Roa igrx ro hoxuyabu hx irw.
+----------------------------------------------------------------------------------------
 
-“Vpy xbll vpyu tlppav wpaahof crxgbu xp fbx ghw qriw pcc pyu apmrho,” Zbsho abmroaba, wqhxxhof rx xgb zhwhxpu.  “Ib rho’x mpzho’ ro hodg gbub, mhwwv, roa xgb wbxxlbmbox irw tyhlx ro’xpqqr yw!”
+In the depths of the mines, a lone dwarven woman shuffled around in the Chamber of Antiquities. It was her day off, which she had been saving up for these past twelve years. Day after night, Veqin had kept true to her duties of serving the Goddess Hel, even sporting the deities famous looks and sacrificing the left half of her body to be consumed by the mites of the mines. Only the most dedicated were given such the privilege of the half-body, and Veqin was not only devout in her work but doubly as diligent.
 
-Vbe wrx dupwwlbffba ho xgb Dgrmtbu pc Roxhsyhxhbw, qbudgba rxpq r aywxv wbx pc tpnbw aurqba ihxg xpuo drozrwwhof. Ighlb gbu uptbw ibub wxhll dlbro, Zbsho gra rlubrav tbbo xpla rtpyx xgb tpahbw pyxwhab ho xgb xyooblw, wp xgbub irw op cbhfohof ahwhoxbubwx ho xgb ruurofbmbox.
+However, after years upon years of managing she had managed to set aside a spot of time for herself. She wished to leave the underworld, at least once this decade, to go grab a cool glass of ale or spend the night by the lakeside. She was rudely interrupted while packing, however, by a band of spirits insisting that she return and deal with the latest intruder.
 
-“Xgrx’w r ohdb wbahmbox,” Vbe ubwqpoaba. “Tyx H’m rcurha hx’w jywx opx yq xp vpy pu mb. Rov lroa bndrzrxba ho xgb ubrlm pc Oharzbllhu tblpofw xp xgb Fhlaba Drfb, roa xghw lroa hw opx polv qrux pc Oharzbllhu tyx bzbo qrux pc xgb mhohof wvwxbm ighdg xgb Drfb piow!”
+And what an intruder it was.
 
-Zbsho wxpumba yq xp Vbe, qphoxhof r tpov chfyub rddywhoflv. “Vpy drll pcc vpyu ahffbuw!”
+“You tell your bloody sodding father to get his paws off our domain,” Veqin demanded, spitting at the visitor.  “We ain’t movin’ an inch here, missy, and the settlement was built an’toppa us!”
 
-Tbghoa gbu, wbzburl pxgbu cpllpibuw pc Gbl gra frxgbuba tyx kbqx xgbhu ahwxrodb. Xgbub ibub opx mrov igp drmb apio xp xgbwb lbzblw, roa xgpwb xgrx aha pcxbo mbx r fuhwlv boa cpu xubwqrwwhof po Gbl’w xyuc. Xgb Uhfgx Groa pc xgb Fhlaba Drfb irw ro bndbqxhpo xgpyfg. Zbsho mhfgx grzb gra xgb frll xp wxroa yq xp gbu, tyx xgb pxgbuw ibub opx wp tpla.
+Yez sat crosslegged in the Chamber of Antiquities, perched atop a dusty set of boxes draped with torn canvassing. While her robes were still clean, Veqin had already been told about the bodies outside in the tunnels, so there was no feigning disinterest in the arrangement.
 
-Vbe ahao’x wbbm qruxhdylrulv xgubrxbohof xgpyfg, po gbu pio. Ho crdx, lpyofhof po xgb tpnbw wgb rlmpwx wbbmba wpmbigrx yoqubqruba cpu xgb dpocupoxrxhpo. Xgbub irw op rumv rx gbu gbblw, opu aha hx rqqbru wgb irw rumba ihxg rovxghof qruxhdylrulv qpibucyl. Igbo gbu dlprk mpzba, xgbub ibub dlhokw roa clrwgbw pc lhfgx xgrx ibub xbllxrlb whfow pc xgb xghbzbw kohzbw, tyx r kohcb ipyla ap lhxxlb fppa rfrhowx xgb fpaabww roa gbu cpllpibuw. Xgb mrwk, po xgb pxgbu groa…
+“That’s a nice sentiment,” Yez responded. “But I’m afraid it’s just not up to you or me. Any land excavated in the realm of Nidavellir belongs to the Gilded Cage, and this land is not only part of Nidavellir but even part of the mining system which the Cage owns!”
 
-“Lppk, ib dro whx roa rufyb yoxhl xgb dpiw dpmb gpmb, tyx H’zb fpx xp dpllbdx ubox tv xgb wxrux pc xgb mpoxg,” Vbe vrioba tbobrxg gbu mrwk. “-roa hc Gbl apbwo’x qrv yq, H’m fphof xp tb dpmhof trdk. Vpy’zb fpxxbo r crhu wgrub pc tywhobww apio gbub ubdboxlv ihxg Tvxpu’w dubi. Wpyoaw lhkb xgbv iroxba r wgrub ho, tyx gpi ap H kopi xgrx Gbl gbuwblc ahao’x grzb wpmbxghof xp ap ihxg xgrx?”
-Zbsho’w opwb wduyodgba yq rw wgb crdba pcc rfrhowx xgb xgbhc.
+Veqin stormed up to Yez, pointing a bony figure accusingly. “You call off your diggers!”
 
-“Vpy apo’x pio rov wxrkb apio gbub, roa vpy apo’x abwbuzb xgb mpobv ib’zb fhzbo vpy ho xgb qrwx. Ib’zb fpx op abrlhofw ihxg xgb abmpo lpua-“
+Behind her, several other followers of Hel had gathered but kept their distance. There were not many who came down to these levels, and those that did often met a grisly end for trespassing on Hel’s turf. The Right Hand of the Gilded Cage was an exception though. Veqin might have had the gall to stand up to her, but the others were not so bold.
 
-“Gb’w jywx r abmpo rdxyrllv,” Vbe hoxbuuyqxba. “Qlbrwb apo’x wxpkb ghw bfp.”
+Yez didn’t seem particularly threatening though, on her own. In fact, lounging on the boxes she almost seemed somewhat unprepared for the confrontation. There was no army at her heels, nor did it appear she was armed with anything particularly powerful. When her cloak moved, there were clinks and flashes of light that were telltale signs of the thieves knives, but a knife would do little good against the goddess and her followers. The mask, on the other hand…
 
-Ihxg xgrx Zbsho’w bvbw lhx yq r gruwg uba. R aruk bobufv tbfro qylwhof xgupyfg gbu tlppa, roa xgb pxgbu cpllpibuw pc Gbl wguyok trdk bzbo cyuxgbu.
+“Look, we can sit and argue until the cows come home, but I’ve got to collect rent by the start of the month,” Yez yawned beneath her mask. “-and if Hel doesn’t pay up, I’m going to be coming back. You’ve gotten a fair share of business down here recently with Bytor’s crew. Sounds like they wanted a share in, but how do I know that Hel herself didn’t have something to do with that?”
 
-“Vpy’ub rwkhof cpu hx, vr ibb-“
+Veqin’s nose scrunched up as she faced off against the theif.
 
-Tbcpub Zbsho dpyla bzbo chohwg gbu xgubrx, r xgho tlrab wgpx pyx cupm Vbe’w groa rw wgb wiyof gbu groa yqiruaw. Xgb hmqpwwhtlv curhl qhbdb pc mbxrl wlha brwhlv hoxp Zbsho’w cpubgbra, mrkhof r whdkbohof dlhdk rw hx xpydgba rfrhowx gbu wkyll. Xgb gbn mrukhofw rlpof xgb mbxrl clhdkbuba hoxp lhcb roa r qrhocyl ibt pc vbllpi mrfhd tbfro dubbqhof pyx cupm xgb tlrab, fupihof lhkb r cyofyw ho xboauhlw rdupww Zbsho’w crdb.
+“You don’t own any stake down here, and you don’t deserve the money we’ve given you in the past. We’ve got no dealings with the demon lord-“
 
-Bzbo rw Zbsho cbll trdkiruaw, wgb ublbrwba xgb qpibu pc Gbl ho r qhoqphox tyuwx, rhmba ahubdxlv rx Vbe’w crdb. Xgb mplxbo mrww pc bobufv durdklba hoxp aruk uba gybw roa hxw mpxhpo xgubi wgpdkirzbw rdupww xgb uppm. Rw hx ghx Vbe’w mrwk, xgb bobufv ighoba roa dpoxpuxba, tbcpub ighmqbuhof roa avhof hoxp opxghofobww.
+“He’s just a demon actually,” Yez interrupted. “Please don’t stoke his ego by calling him a demon **lord**.”
 
-Xgb ubwx pc xgb cpllpibuw qyllba trdk Zbsho roa lppkba ihxg cbru rx Vbe rw wgb fboxlv xrqqba po gbu fplabo mrwk. Xgb Uhfgx Groa pc xgb Fhlaba Drfb lppkba pzbu xgpwb igp ubmrhoba ihxg hoahccbubodb.
-“Ibll xgbo,” wgb wrha, “ap H obba xp dpmb trdk, pu ipyla vpy jywx lhkb xp qyx xgb qrvmbox ho xgb druxw roa wboa hx pcc po xgb 1wx?”
+With that Veqin’s eyes lit up a harsh red. A dark energy began pulsing through her blood, and the other followers of Hel shrunk back even further.
 
-R mbmtbu pc Gbl wxbqqba cpuiruaw. “Ib ihll wbb xgrx Gbl ubdbhzbw vpyu mbwwrfb.”
-“Mm, wbb xgrx vpy ap. Hx’w syhxb ro bngrywxhof irlk apio gbub, roa H grzb mpub qubwwhof mrxxbuw xp rxxboa xp xgro xgb abra.”
+“You’re asking for it, ya wee-“
 
-Roa ihxg xgrx, xgb drx-mrwkba fhul chorllv lbrqx yq cupm gbu qbudg. Wxroahof po xgb dbhlhof podb rfrho ihxg gbu dlprk cpllpihof wyhx. Wgb tbfro irlkhof pyx xgb appu, igbo xgb mro igp wqpkb urhwba ghw groa xp wxpq gbu.
+Before Veqin could even finish her threat, a thin blade shot out from Yez’s hand as she swung her hand upwards. The impossibly frail piece of metal slid easily into Veqin’s forehead, making a sickening click as it touched against her skull. The hex markings along the metal flickered into life and a painful web of yellow magic began creeping out from the blade, growing like a fungus in tendrils across Veqin’s face.
 
-“Gpla! Ihll wgb lhzb?” gb wrha, fbwxyuhof apio xp Zbsho.
+Even as Veqin fell backwards, she released the power of Hel in a pinpoint burst, aimed directly at Yez’s face. The molten mass of energy crackled into dark red hues and its motion threw shockwaves across the room. As it hit Yez’s mask, the energy whined and contorted, before whimpering and dying into nothingness.
 
-Vbe wxppa halv po xgb dbhlhof, opx ubrllv tpxgbuhof xp xyuo rupyoa tyx howxbra jywx wihzblhof gbu gbra trdk rirvw.
+The rest of the followers pulled back Veqin and looked with fear at Yez as she gently tapped on her golden mask. The Right Hand of the Gilded Cage looked over those who remained with indifference.
 
-“Lhzb? Quptrtlv opx. Opx xgrx hx mrxxbuw rovirvw, wbbhof rw vpy rll lpzb abrxg wp mydg. Qlrfyb tlrabw rub r thx xpp uhwkv xp ywb ho xgb dhxv, tyx xgbv’ub cyo xp ywb igbo H fbx xgb dgrodb.”
-Xgpwb gyaalba rupyoa Zbsho wyaabolv tplxba rirv, howqbdxhof xgbhu groaw cpu whfow pc xgb vbllpi cyofyw.
+“Well then,” she said, “do I need to come back, or would you just like to put the payment in the carts and send it off on the 1st?”
+A member of Hel stepped forwards. “We will see that Hel receives your message.”
 
-Vbe kbqx r crhox dgydklb ghaabo tbobrxg xgb mrwk roa tbfro xp irlk trdk yq xp xgb dhxv.
+“Mm, see that you do. It’s quite an exhausting walk down here, and I have more pressing matters to attend to than the dead.”
 
-“Grzb r fppa ubwx pc xgb mpoxg!”
+And with that, the cat-masked girl finally leapt up from her perch. Standing on the ceiling once again with her cloak following suit. 
+
+She began walking out the door, when the man who spoke raised his hand to stop her.
+
+“Hold! Will she live?” he said, gesturing down to Veqin.
+
+Yez stood idly on the ceiling, not really bothering to turn around but instead just swiveling her head back aways.
+
+“Live? Probably not. Not that it matters anyways, seeing as you all love death so much. Plague blades are a bit too risky to use in the city, but they’re fun to use when I get the chance.”
+
+Those huddled around Veqin suddenly bolted away, inspecting their hands for signs of the yellow fungus.
+
+Yez kept a faint chuckle hidden beneath the mask and began to walk back up to the city.
+
+“Have a good rest of the month!”
+
