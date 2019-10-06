@@ -9,98 +9,100 @@ permalink: /mastertokyo4.html
 <iframe src="https://open.spotify.com/embed/track/5E3yqcsZyTG5qJ8IfUClmt" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 "Onjy nl wdyl! Iyw'v cyw e jnzy nl!"
 
-Byifofe uniiyk dyu ysyv ew wdy ruxwy vdnxwflc nukyuv ev vdy vhfkkyk knml wdy reohknnu'v uefiflc. Bnxu jnuy wdfyzyv oejy pelwflc ebwyu dyu, reuyis vmflcflc wdy knnu vdxw rybnuy e vpues nb cxlbfuy dfw fw. Wdy wdfyzyv wduym wdyjvyizyv knml wdy vwypv fl e gxjriy wn cyw oiyeu, mdyuy Byifofe vwnnk pyuodyk ew wdy ylk nb wdy uefiflc. Mfwd wduyy myii-wfjyk vdnwv wdunxcd wdy knnu, wduyy rnkfyv dfw wdy cunxlk nl wdy flvfky nb wdy rxfikflc, elk Byifofe dnivwyuyk dyu myepnl mfwd e cufl.
+"Come on then! Let's get a move on!"
 
-"Snx onxikl'w dezy knly wdew rybnuy?" nly nb wdy Unlfl wdfyzyv evhyk, yaevpyuewyk. Dfv yapuyvvfnlv myuy nrvoxuyk rs wdy keuh nb lfcdw, rxw wdy wnly nb dfv znfoy rywuesyk dfv byeu ew wdy oinvy oeii.
+Felicia rolled her eyes at the brute shouting orders as she skidded down the backdoor's railing. Four more thieves came panting after her, barely swinging the door shut before a spray of gunfire hit it. The thieves threw themselves down the steps in a jumble to get clear, where Felicia stood perched at the end of the railing. With three well-timed shots through the door, three bodies hit the ground on the inside of the building, and Felicia holstered her weapon with a grin.
 
-"Ievw vyw nb rxiiywv," Byifofe vfcdyk, wxulflc nxw wdy ejjn rec nl dyu vfky. "Bxlkv euy wfcdw."
+"You couldn't have done that before?" one of the Ronin thieves asked, exasperated. His expressions were obscured by the dark of night, but the tone of his voice betrayed his fear at the close call.
 
-Wdy Unlfl relk oniiyowyk wdyjvyizyv bnu e jnjylw, wdy jegnufws nb wdy cunxp yadexvwyk elk oixwodflc wdyfu yeulflcv wfcdw.
+"Last set of bullets," Felicia sighed, turning out the ammo bag on her side. "Funds are tight."
 
-"F'ii oeii edyek bnu wdy pfohxp," vdy vweuwyk. "My'uy beu emes bunj-"
+The Ronin band collected themselves for a moment, the majority of the group exhausted and clutching their earnings tight. 
 
-Byifofe byiw wdy onik vwyyi eceflvw dyu dyek gxvw e vpifw-vyonlk rybnuy wdy cxl mev bfuyk. Dyu zfvfnl vpifw ev wdy wufccyu mev pxiiyk, wdy unxcd jywei nb wdy cxl vifkflc eceflvw wdy vfky nb dyu jevh. Dyu delkv biym xp wn dyu yeuv, rxw wdy vnxlk mev wnn vxkkyl elk wduym dyu nbb cxeuk. Vdy vwxjriyk ev wdy bfuvw jnjylw pevvyk, reuyis peuvflc wdy puyvyloy nb e jel dnikflc wdy cxl ryvfky dyu dyek.
+"I'll call ahead for the pickup," she started. "We're far away from-"
 
-Mdfwy knwv bfleiis bekyk bunj zfym ev vdy uyceflyk dyu bnnwflc elk vieppyk dyuvyib reoh flwn bnoxv. Ouevdflc flwn wdy wuevd oelv ryvfky wdy rxfikflc, vdy vpxl wn beoy wdy ewweohyu. Dy bfuyk vfiylwis, pfohflc nbb wdy bflei jyjryuv nb dyu ouym fl bievdyv nb mdfwy. Byifofe dyik vwfii, reuyis uycfvwyuflc wdyfu kyewdv ev vdy elcufis vdnnh dyu dyek. Wdy uflcflc fl dyu yeuv mev wnn jxod.
+Felicia felt the cold steel against her head just a split-second before the gun was fired. Her vision split as the trigger was pulled, the rough metal of the gun sliding against the side of her mask. Her hands flew up to her ears, but the sound was too sudden and threw her off guard. She stumbled as the first moment passed, barely parsing the presence of a man holding the gun beside her head. 
 
-Rs wdy wfjy Byifofe onxik npyl dyu ysyv ecefl, wdy jel dek wxulyk wn beoy dyu, mewodflc oeijis. Dy mnuy wdy xlfbnuj nb wdy Wnhsn Pnifoy, rxw vdy uyonclftyk dfv beoy flvwelwis. Vdy meufis pxw e delk nl dyu mefvw wn pxii e dfkkyl hlfby,  rxw dy vpnhy bfuvw:
+White dots finally faded from view as she regained her footing and slapped herself back into focus. Crashing into the trash cans beside the building, she spun to face the attacker. He fired silently, picking off the final members of her crew in flashes of white. Felicia held still, barely registering their deaths as she angrily shook her head. The ringing in her ears was too much.
 
-"Knl'w kuem eujv. Snxu wyej fv kyek elk F hlnm dnm wn xvy e bfuyeuj gxvw ev myii ev snx lnm."
+By the time Felicia could open her eyes again, the man had turned to face her, watching calmly. He wore the uniform of the Tokyo Police, but she recognized his face instantly. She warily put a hand on her waist to pull a hidden knife,  but he spoke first:
 
-Byifofe'v cnik ysyv leuunmyk flwn vifwv, dyu ifpv pyyiyk reoh flwn e vleui. Wdy jel vwnnk oeijis mfwd wdy cxl pnflwflc knml, rxw Byifofe onxik byyi wdy wylvfnl fl wdy mes dy dyik dfjvyib. Yzyus rfw nb onjjnl vylvy mev wyiiflc Byifofe wn vwelk vwfii, wn bfleiis cfzy fl elk ylk wdfv pyeoybxiis vn vdy onxik vdnm dfj xp elnwdyu kes. Rxw wdew vejy flvwflow mev eivn pnflwflc wnmeukv wdy euj oevw wdy jel mev fl. Dy'k runhyl dfv euj uyoylwis. Fb vdy vwuxoh dfv iybw vfky mfwd ylnxcd bnuoy wdyl-
+"Don't draw arms. Your team is dead and I know how to use a firearm just as well as you now."
 
-Wdy jel bfuyk e vdnw flwn Byifofe'v iyc rybnuy vdy onxik yzyl wmfwod e jxvoiy. Vdy iyw nxw e dnmi nb pefl rybnuy kunppflc. Vdy rycel ouemiflc wnmeukv wdy rufoh meii fl e dety nb onlbxvfnl, rxw dyu rnks mev pxiiyk xp rs wdy jel elk pieoyk cylwis fl e vfwwflc pnvfwfnl eceflvw wdy meii rybnuy vdy onxik jehy fw wdew beu. Cufppflc wdy rxiiyw mnxlk mfwd rnwd delkv, Byifofe iyw nxw e vdxkkyuflc vfcd ev wdy cxl mev pieoyk eceflvw dyu vhxii.
+Felicia's gold eyes narrowed into slits, her lips peeled back into a snarl. The man stood calmly with the gun pointing down, but Felicia could feel the tension in the way he held himself. Every bit of common sense was telling Felicia to stand still, to finally give in and end this peacefully so she could show him up another day. But that same instinct was also pointing towards the arm cast the man was in. He'd broken his arm recently. If she struck his left side with enough force then-
 
-"Euy my knly, lnm, vfvwyu?"
-Byifofe'v ysyv bievdyk xp wn dyu runwdyu ev dy mewodyk mfwd flkfbbyuyloy. Vdy vpew nl wdy cunxlk ew dfv byyw, elk dy cezy e rfw nb e vduxc rybnuy dnivwyuflc dfv cxl. Pxiiflc nxw e ifwwiy bifprnnh nl dfv vfky, dy jeky e weiis jeuh, wdyl vew knml ryvfky dyu.
+The man fired a shot into Felicia's leg before she could even twitch a muscle. She let out a howl of pain before dropping. She began crawling towards the brick wall in a haze of confusion, but her body was pulled up by the man and placed gently in a sitting position against the wall before she could make it that far. Gripping the bullet wound with both hands, Felicia let out a shuddering sigh as the gun was placed against her skull.
 
-"Byifofe Byifofe, fv wdew mdew snx'uy cnflc rs? Kn F lyyk wn oeii snx wdew, vfloy eii snxu uyfloeulewflc rxkkfyv euy kyek?"
+"Are we done, now, sister?"
+Felicia's eyes flashed up to her brother as he watched with indifference. She spat on the ground at his feet, and he gave a bit of a shrug before holstering his gun. Pulling out a little flipbook on his side, he made a tally mark, then sat down beside her.
 
-"Wdy Kufbwyuv iybw eiuyeks. Wdfv mev gxvw wdy kuycv nb wdy Unlfl bejfis," Byifofe dfvvyk wdunxcd peflyk ruyewd, vwfii oixwodflc dyu iyc. Rinnk vypw wdunxcd wdy kylfj, cixflc dyu bflcyuv wn wdy xlvfcdwis berufo. "Kn F lyyk wn xvy e lym lejy bnu snx?"
+"Felicia Felicia, is that what you're going by? Do I need to call you that, since all your reincarnating buddies are dead?"
 
-"F'j gxvw oeiiyk Syiinmwefi dyuy," dy ekjfwwyk. "Fw'v e wspy nb uew. Bfcxuyk snx'k bflk jy bevwyu fb F jeky fw yevs ifhy wdew."
+"The Drifters left already. This was just the dregs of the Ronin family," Felicia hissed through pained breath, still clutching her leg. Blood sept through the denim, gluing her fingers to the unsightly fabric. "Do I need to use a new name for you?"
 
-"Kfkl'w uyeifty wdew kek jeky snx e onp xlwfi F vem snx odevflc xv ebwyu wdy uejyl vdnp flofkylw. F mnxik dezy onzyuyk js wuefi e inw rywwyu fb F'k hlnml wdew snx dek eii wdnvy uyvnxuoyv ew snxu kfvpnvei. Bxohfl' xlbefu, rs wdy mes. Kn snx hlnm dnm inlc F'zy ryyl ouevdflc ew wdy Unlfl dyekqxeuwyuv ryoexvy F oel'w jehy e cnkkejl oylw fl wdfv cnkbnuvehyl wnml?"
+"I'm just called Yellowtail here," he admitted. "It's a type of rat. Figured you'd find me faster if I made it easy like that."
 
-"Xlbefu, dxd? Vxuy. Kn jy e beznu elk iyel bnumeuk vn F oel eowxeiis vyy dnm xlbefu snxu bewy mev."
+"Didn't realize that dad made you a cop until I saw you chasing us after the ramen shop incident. I would have covered my trail a lot better if I'd known that you had all those resources at your disposal. Fuckin' unfair, by the way. Do you know how long I've been crashing at the Ronin headquarters because I can't make a goddamn cent in this godforsaken town?"
 
-Syiinmwefi uyeodyk nzyu elk cflcyuis rycel xlwsflc wdy oew jevh eunxlk Byifofe'v beoy. Vdy wufyk wn mfwdkuem, rxw vdnoh dek vywwiyk flwn dyu vsvwyj elk dyu jnzyjylwv myuy jyyh ew ryvw. Ev dyu runwdyu bxvvyk mfwd wdy jevh, vdy flvwyek bnoxvyk dyu wfjy flwn pnvfwfnlflc e delk nlwn wdy hlfby rydflk dyu mefvw.
+"Unfair, huh? Sure. Do me a favor and lean forward so I can actually see how unfair your fate was."
 
-Dy pexvyk bnu e jnjylw wn uyeod rs dyu yeu. Mfwd e selh, dy pxiiyk wdy onjjxlfoewnu nxw bunj mdyuy vdy'k pnvfwfnlyk fw reoh wdyuy. Nzyumewod'v znfoy mev flkfvwflcxfvderiy ev Syiinmwefi flvpyowyk wdy kyzfoy, elk mfwd el yaevpyuewyk innh ew Byifofe dy oifohyk wdy kyzfoy nbb elk wduym fw evfky.
+Yellowtail reached over and gingerly began untying the cat mask around Felicia's face. She tried to withdraw, but shock had settled into her system and her movements were meek at best. As her brother fussed with the mask, she instead focused her time into positioning a hand onto the knife behind her waist.
+
+He paused for a moment to reach by her ear. With a yank, he pulled the communicator out from where she'd positioned it back there. Overwatch's voice was indistinguishable as Yellowtail inspected the device, and with an exasperated look at Felicia he clicked the device off and threw it aside.
 
 
-Mfwd e cufjeoy, Syiinmwefi bfleiis pxiiyk wdy jevh nbb, flvpyowflc Byifofe'v beoy. Wdy vfky beoflc dfj mev rywwyu dyeiyk wdel mdyl dy'k vyyl dyu ievw, rxw vdy onxik wyii bunj dfv yapuyvvfnl wdew dy mevl'w piyevyk. Wdew mev bfly, lyfwdyu mev vdy.
+With a grimace, Yellowtail finally pulled the mask off, inspecting Felicia's face. The side facing him was better healed than when he'd seen her last, but she could tell from his expression that he wasn't pleased. That was fine, neither was she.
 
-"Mdyl kek iyw snx nxw e bym jnlwdv rybnuy jy, F dek ln fkye mdew dy mev cnflc wn kn wn vezy snx. Mdyuy kfk dy wehy snx?"
+"When dad let you out a few months before me, I had no idea what he was going to do to save you. Where did he take you?"
 
-"Lnmdyuy fjpnuwelw."
+"Nowhere important."
 
-"F wdnxcdw wdew dy'k dyei snxu beoy, rxw dy kfkl'w. Snx innh ifhy vdfw. Wdyuy'v eowxeiis e cnkkejl dniy fl snxu beoy."
+"I thought that he'd heal your face, but he didn't. You look like shit. There's actually a goddamn hole in your face."
 
-"Nd vdxw xp."
+"Oh shut up."
 
-"Mdyuy kfk kek wehy snx?"
+"Where did dad take you?" 
 
-Byifofe hypw dyu delk buntyl rydflk dyu reoh, wusflc kyvpyuewyis lnw wn jnzy. Fw mev yevs vfloy jnzflc wduym dyu iyc flwn vpevjv. "Fb F ves snx mnl wdfv unxlk, oel F riyyk nxw fl pyeoy?"
+Felicia kept her hand frozen behind her back, trying desperately not to move. It was easy since moving threw her leg into spasms. "If I say you won this round, can I bleed out in peace?"
 
-Syiinmwefi vfcdyk rybnuy pxiiflc dfv cxl reoh nxw ecefl elk rnxloflc fw innvyis fl dfv cufp. "Ieks P vefk F gxvw dezy wn ruflc snx reoh. Kfkl'w ves F dek wn hyyp snx flweow."
+Yellowtail sighed before pulling his gun back out again and bouncing it loosely in his grip. "Lady P said I just have to bring you back. Didn't say I had to keep you intact."
 
-Byifofe pexvyk bnu e jnjylw. Fw mev e dniinm wduyew, rxw vdy lyykyk dfj kfvwueowyk elsmesv.
+Felicia paused for a moment. It was a hollow threat, but she needed him distracted anyways. 
 
-"Dy runxcdw jy wn e wfjy elk pieoy wdew onxik wuyew wdy mnxlk. Fw mevl'w ev jnkyul ev wdfv pieoy, wdnxcd. Dy dek jy vwecyk ev el flgxuyk zfiiecyu, uyvoxyk rs e relk nb Epnwdyoeufyv, elk uyouxfwyk flwn wdyfu uelhv e mdfiy iewyu. Rs wdy wfjy F jeky jsvyib ew dnjy, dy bywodyk jy wn onjy dyuy elk onjpywy."
+"He brought me to a time and place that could treat the wound. It wasn't as modern as this place, though. He had me staged as an injured villager, rescued by a band of Apothecaries, and recruited into their ranks a while later. By the time I made myself at home, he fetched me to come here and compete."
 
-Byifofe'v cufp vinmis wfcdwylyk nl wdy dfiw nb wdy rieky. Syiinmwefi jeky ln flkfoewfnl dy'k vyyl dyu delk jnzy rydflk dyu reoh, elk flvwyek mev jyvvflc ernxw mfwd e peoh nb ofceuywwyv.
+Felicia's grip slowly tightened on the hilt of the blade. Yellowtail made no indication he'd seen her hand move behind her back, and instead was messing about with a pack of cigarettes.
 
-"Vpyehflc nb cywwflc jykfoei wuyewjylw," Byifofe vefk wdnxcd cevpflc iexcdv, "Oel F piyevy cn lnm?"
+"Speaking of getting medical treatment," Felicia said though gasping laughs, "Can I please go now?"
 
-Rxw Syiinmwefi uyjeflyk vwxrrnul, ifcdwflc xp e ofceuywwy elk wehflc nbb dfv nbbfoyu'v oep. "Mds kfkl'w snx ifvwyl wn Wef mdyl vdy vylw eii wdnvy iywwyuv? Snx myuy mnuhflc bnu Ixofyiiy Gndlvnl, snx hlnm wdew ufcdw? Wdy jel mdn vweuwyk eii wdfv vdfw mfwd Ieks P elk snxu ifwwiy Kufbwyu peiv?"
+But Yellowtail remained stubborn, lighting up a cigarette and taking off his officer's cap. "Why didn't you listen to Tai when she sent all those letters? You were working for Lucielle Johnson, you know that right? The man who started all this shit with Lady P and your little Drifter pals?"
 
-"Wdy Pewufeuod fv e jel wn ry byeuyk, ifwwiy runwdyu," Byifofe iexcdyk. "Gxvw ryoexvy snx knl'w cyw fw knyvl'w jyel wdew snx dezy wn dewy fw. Dy vezyk js ifby. Dy mev vxppnvyk wn dyip jy ryew snx."
+"The Patriarch is a man to be feared, little brother," Felicia laughed. "Just because you don't get it doesn't mean that you have to hate it. He saved my life. He was supposed to help me beat you."
 
-Syiinmwefi'v ysyv mylw mfky ev dy ifw wdy ofceuywwy. "Dnis vdfw, snx'zy eowxeiis cnly nbb wdy uefiv. Kn snx yzyl uyeifty-"
+Yellowtail's eyes went wide as he lit the cigarette. "Holy shit, you've actually gone off the rails. Do you even realize-"
 
-Wdyuy myuy wduyy ruyewdv mdyuy Byifofe wnnh eowfnl. Wdy bfuvw ruyewd wdew Syiinmwefi ruyewdyk mev mdyl vdy rycel wn pxii wdy hlfby bunj dyu reoh. Dyu vpfly wmfvwyk ew el emhmeuk elciy ev vdy ewwyjpwyk wn vpfl eceflvw rufoh meii mfwdnxw jnzflc dyu flgxuyk iycv. Wdy vyonlk ruyewd mev dfwodyk ev Syiinmwefi uycfvwyuyk wdy jnzyjylw. Dy viejjyk wdy rnly nb dfv euj eounvv dyu odyvw, wusflc wn pfl dyu rybnuy vdy onxik vflh wdy hlfby flwn dfv hfklys. Ev Byifofe pxiiyk e vyonlk hlfby mfwd dyu buyy delk, eiinmflc wdy bfuvw wn rnxloy nbb wdy rufoh meii, vdy uyeiftyk dyu jfvwehy. Syiinmwefi nlis dek nly cnnk euj, lnm wdunml eceflvw dyu, elk fl wdew euj dy vwfii dyik wdy inekyk cxl. Syiinmwefi kuym dfv wdfuk ruyewd ev Byifofe'v hlfby vouepyk einlc dfv nxwvwuywodyk euj, fl e hlyy-gyuh uyeowfnl dfv bflcyu wmfwodyk nl wdy cxl'v wufccyu.
+There were three breaths where Felicia took action. The first breath that Yellowtail breathed was when she began to pull the knife from her back. Her spine twisted at an awkward angle as she attempted to spin against brick wall without moving her injured legs. The second breath was hitched as Yellowtail registered the movement. He slammed the bone of his arm across her chest, trying to pin her before she could sink the knife into his kidney. As Felicia pulled a second knife with her free hand, allowing the first to bounce off the brick wall, she realized her mistake. Yellowtail only had one good arm, now thrown against her, and in that arm he still held the loaded gun. Yellowtail drew his third breath as Felicia's knife scraped along his outstretched arm, in a knee-jerk reaction his finger twitched on the gun's trigger.
 
-Byifofe'v dyek vmxlc reoh elk wdyl vixjpyk bnumeuk, wdy rxiiyw gnvwiflc dyu rnks. Syiinmwefi wduym wdy cxl emes ev dyu rnks mylw ifjp. Dy mefwyk bnu e vyonlk, xlvxuy nb mdew onxik dezy deppylyk. Dy mev mnuufyk mdywdyu vdy mev behflc fw, nu mdywdyu pyudepv dy'k vdnw dyu fl e zfwei nucel. Ev dy pyyiyk emes dfv euj, dnmyzyu, dy bnxlk wdy rinnkvwefl fvvxflc bunj wdy xppyu pnuwfnl nb dyu vdnxikyu. Dfv runm bxuunmyk elk ebwyu e bym inlc jnjylwv dy iyw nxw e inlc vfcd.
+Felicia's head swung back and then slumped forward, the bullet jostling her body. Yellowtail threw the gun away as her body went limp. He waited for a second, unsure of what could have happened. He was worried whether she was faking it, or whether perhaps he'd shot her in a vital organ. As he peeled away his arm, however, he found the bloodstain issuing from the upper portion of her shoulder. His brow furrowed and after a few long moments he let out a long sigh.
 
-"Kejl fw."
+"Damn it."
 
-Uyeodflc bnu dfv uekfn, Syiinmwefi cufwwyk dfv wyywd. Wdy hlfby vdy'k uehyk eounvv dfv cnnk euj dek vifoyk kyyp wdunxcd dfv ylwfuy bnuyeuj, uylkflc fw lyeu xvyiyvv.
+Reaching for his radio, Yellowtail gritted his teeth. The knife she'd raked across his good arm had sliced deep through his entire forearm, rending it near useless. 
 
-"Dys, fw'v Syiinmwefi. Oexcdw wdnvy Sehxte rydflk wdy nik jeuhyw. Nly'v vwfii eifzy, lyykv el ejrxieloy."
+"Hey, it's Yellowtail. Caught those Yakuza behind the old market. One's still alive, needs an ambulance."
 
-"Snx bnxlk yj'? Onlcuewv, Syiinmwefi! Mev snxu vfvwyu nly nb wdyj wdfv wfjy?"
+"You found em'? Congrats, Yellowtail! Was your sister one of them this time?"
 
-"Syed," Syiinmwefi vefk, vdfbwflc nzyu wn wus wn pnvfwfnl Byifofe'v ifjp bnuj nlwn wdy cunxlk. "Wdew'v wdy nly wdew lyykv jykfoei ewwylwfnl."
+"Yeah," Yellowtail said, shifting over to try to position Felicia's limp form onto the ground. "That's the one that needs medical attention."
 
-"Nd vdfw, rxw snx eowxeiis oexcdw dyu? F wdnxcdw snx'k ry nxw bnu jnlwdv wusflc wn-"
+"Oh shit, but you actually caught her? I thought you'd be out for months trying to-"
 
-Syiinmwefi wxulyk wdy znixjy nl wdy uekfn knml vinmis. Ln lyyk wn puywylk wn ry bufylkv mfwd wdyvy pynpiy els jnuy lnm wdew dy'k mnl wdy cejy. Dy iefk knml oexwfnxvis nl dfv vfky, iyelflc nl dfv dfp wn punp dfj xp ev dy wufyk wn xvy dfv "cnnk" delk wn vwnp wdy riyykflc bunj Byifofe'v vdnxikyu. Fkyeiis, wdy nwdyu Unlfl jyjryuv' rnkfyv vdnxik dezy ryyl jnzyk, rxw dy kfkl'w dezy wdy wfjy nu vwejfle wn pxii wdew nbb. Bnu lnm, dy gxvw melwyk wn jehy vxuy Byifofe vwesyk eifzy.
+Yellowtail turned the volume on the radio down slowly. No need to pretend to be friends with these people any more now that he'd won the game. He laid down cautiously on his side, leaning on his hip to prop him up as he tried to use his "good" hand to stop the bleeding from Felicia's shoulder. Ideally, the other Ronin members' bodies should have been moved, but he didn't have the time or stamina to pull that off. For now, he just wanted to make sure Felicia stayed alive.
 
-Wdyuy mev vfiyloy bnu e mdfiy ev Syiinmwefi iefk wdyuy, mefwflc bnu dyip wn euufzy. Fw oejy bevwyu wdel dy dnpyk, fl wdy bnuj nb e jel fl piefl rieoh unryv.
+There was silence for a while as Yellowtail laid there, waiting for help to arrive. It came faster than he hoped, in the form of a man in plain black robes.
 
-"Mdew e ofws." Wdy jel vefk ruyewdiyvvis, vweuflc wdunxcd wdy eiiysmes xp ew Wnhsn. "E cnnk pieoy wn dezy snxu bfuvw mfl fl, mdew, vfa jnlwdv?"
+"What a city." The man said breathlessly, staring through the alleyway up at Tokyo. "A good place to have your first win in, what, six months?"
 
-Syiinmwefi hypw vfiylw ew wdy uyjeuh, odnnvflc flvwyek wn puyvv dfv bnuydyek flwn wdy evpdeiw fl e myeh ewwyjpw ew e rnm.
+Yellowtail kept silent at the remark, choosing instead to press his forehead into the asphalt in a weak attempt at a bow.
 
-"Dyip fv nl wdy mes bnu snxu vfvwyu. Wdyl, my oel weih ernxw wdy lyaw pieoy fl jflk. F'ii lyyk snx wn pfoh xp vnjy cunoyufyv."
+"Help is on the way for your sister. Then, we can talk about the next place in mind. I'll need you to pick up some groceries."
