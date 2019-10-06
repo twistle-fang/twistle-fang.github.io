@@ -8,64 +8,63 @@ permalink: /ire9.html
 ---
 <iframe src="https://open.spotify.com/embed/track/14y4GPBaNVkxLE4Iib8iLc" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
+7: And are we going to do anything regarding Lucielle Johnson?
 
+2: So eager to kill a god?
 
-7: Hwl him cm oxqwo ex lx hwfepqwo imohilqwo Uakqmuum Sxpwrxw?
+7: He's responsible for the Trial of Heroes. That means he was the one who put Velvet there, and the one who led Lady Parhelion to the trials. He set all this in motion.
 
-2: Rx mhomi ex tquu h oxl?
+2: Hasty to draw judgement.
 
-7: Pm'r imryxwrqjum nxi epm Eiqhu xn Pmixmr. Ephe vmhwr pm chr epm xwm cpx yae Bmubme epmim, hwl epm xwm cpx uml Uhlf Yhipmuqxw ex epm eiqhur. Pm rme huu epqr qw vxeqxw.
+7: He's also watched the death of many, many people. He's more than a trickster, he's malicious. He needs to be removed from the equation.
 
-2: Phref ex lihc salomvmwe.
+2: He saved Yez's life.
 
-7: Pm'r hurx chekpml epm lmhep xn vhwf, vhwf ymxyum. Pm'r vxim ephw h eiqktremi, pm'r vhuqkqxar. Pm wmmlr ex jm imvxbml nixv epm mzaheqxw.
+7: And he tortured that one lady on the observatory you puppeted. Did you really think he didn't know you were within that body?
 
-2: Pm rhbml Fmg'r uqnm.
+2: Perhaps, perhaps not.
 
-7: Hwl pm exieaiml ephe xwm uhlf xw epm xjrmibhexif fxa yayymeml. Lql fxa imhuuf epqwt pm lqlw'e twxc fxa cmim cqepqw ephe jxlf?
+7: Even if he didn't, he was torturing an innocent life.
 
-2: Ymiphyr, ymiphyr wxe.
+2: Or he was simply observing such things.
 
-7: Mbmw qn pm lqlw'e, pm chr exieaiqwo hw qwwxkmwe uqnm.
+7: Is that any better? If you watch a man die like that, do you really deserve to be blameless? Besides, I didn't expect you to actually defend him this much.
 
-2: Xi pm chr rqvyuf xjrmibqwo rakp epqwor.
+2: The affairs of the gods are tricky, Preston. I didn't even get a chance to face off with Baumen and I was still nearly killed. I fear that you are walking down the same path, and I'd rather not put the most powerful being as your next target.
 
-7: Qr ephe hwf jmeemi? Qn fxa chekp h vhw lqm uqtm ephe, lx fxa imhuuf lmrmibm ex jm juhvmumrr? Jmrqlmr, Q lqlw'e mdymke fxa ex hkeahuuf lmnmwl pqv epqr vakp.
+7: Well, he won't be my target, now will he?
 
-2: Epm hnnhqir xn epm oxlr him eiqktf, Yimrexw. Q lqlw'e mbmw ome h kphwkm ex nhkm xnn cqep Jhavmw hwl Q chr requu wmhiuf tquuml. Q nmhi ephe fxa him chutqwo lxcw epm rhvm yhep, hwl Q'l ihepmi wxe yae epm vxre yxcminau jmqwo hr fxai wmde ehiome.
+2: You think Parhelion will do the dirty work for you? Are you kidding me?
 
-7: Cmuu, pm cxw'e jm vf ehiome, wxc cquu pm?
+7: Don't play dumb, I can feel her rage. She wants justice, and not just for Velvet. She wants to kill Lucielle Johnson, or at least beat him down into a lesser position among the gods.
 
-2: Fxa epqwt Yhipmuqxw cquu lx epm lqief cxit nxi fxa? Him fxa tqllqwo vm?
+2: We don’t fight gods. Not even the Chaotics do such a thing.
 
-7: Lxw'e yuhf lavj, Q khw nmmu pmi ihom. Rpm chwer sareqkm, hwl wxe sare nxi Bmubme. Rpm chwer ex tquu Uakqmuum Sxpwrxw, xi he umhre jmhe pqv lxcw qwex h umrrmi yxrqeqxw hvxwo epm oxlr.
+7: But they could. Why not us? We can work together, set traps in advance, take Lucielle Johnson down for good.
 
-2: Cm lxw’e nqope oxlr. Wxe mbmw epm Kphxeqkr lx rakp h epqwo.
+2: What do you even care about this realm? Has sense escaped your mind? Just because our story is woven with the drifters does not mean we need to kill their gods.
 
-7: Jae epmf kxaul. Cpf wxe ar? Cm khw cxit exomepmi, rme eihyr qw hlbhwkm, ehtm Uakqmuum Sxpwrxw lxcw nxi oxxl.
+7: If we don't, then they'll keep coming back to play as Lucielle's pawns. Someone is controlling their souls behind the lines, you know that. Remove the head, and they go free.
 
-2: Cphe lx fxa mbmw khim hjxae epqr imhuv? Phr rmwrm mrkhyml fxai vqwl? Sare jmkharm xai rexif qr cxbmw cqep epm liqnemir lxmr wxe vmhw cm wmml ex tquu epmqi oxlr.
+2: You know I am with you on this, but I must remain as impartial towards the judgement of the gods as possible. It is the task that I will soon fill.
 
-7: Qn cm lxw'e, epmw epmf'uu tmmy kxvqwo jhkt ex yuhf hr Uakqmuum'r yhcwr. Rxvmxwm qr kxweixuuqwo epmqi rxaur jmpqwl epm uqwmr, fxa twxc ephe. Imvxbm epm pmhl, hwl epmf ox nimm.
+7: Just go talk to Lady about it. Put out the call.
 
-2: Fxa twxc Q hv cqep fxa xw epqr, jae Q vare imvhqw hr qvyhieqhu exchilr epm salomvmwe xn epm oxlr hr yxrrqjum. Qe qr epm ehrt ephe Q cquu rxxw nquu.
+2: I will ask. Standby.
 
-7: Sare ox ehut ex Uhlf hjxae qe. Yae xae epm khuu.
+9: I've thought about it for quite a few years now, Preston. Our first priority, as you well know, is Spailascor. Afterwards, I will issue a call to the Nine with the request to hunt Lucielle Johnson.
 
-2: Q cquu hrt. Rehwljf.
+7: I'm in.
 
-9: Q'bm epxaope hjxae qe nxi zaqem h nmc fmhir wxc, Yimrexw. Xai nqire yiqxiqef, hr fxa cmuu twxc, qr Ryhquhrkxi. Hnemichilr, Q cquu qrram h khuu ex epm Wqwm cqep epm imzamre ex pawe Uakqmuum Sxpwrxw.
+9: Prices will be negotiated once we are closer to that day.
 
-7: Q'v qw.
+2: I don't think any of us want a reward in return for this one. Call it a greater evil we're removing.
 
-9: Yiqkmr cquu jm wmoxeqheml xwkm cm him kuxrmi ex ephe lhf.
+7: I'm with Tai. I don't see how we can let such a being live this way. His evil is too great.
 
-2: Q lxw'e epqwt hwf xn ar chwe h imchil qw imeaiw nxi epqr xwm. Khuu qe h oimhemi mbqu cm'im imvxbqwo.
+9: Then it is settled. After we kill Spailascor and free the others, we will return with the intent to capture and try Lucielle Johnson in the Court of the Red Monk, either overseen by Tai or her father.
 
-7: Q'v cqep Ehq. Q lxw'e rmm pxc cm khw ume rakp h jmqwo uqbm epqr chf. Pqr mbqu qr exx oimhe.
+2: I will gladly judge.
 
-9: Epmw qe qr rmeeuml. Hnemi cm tquu Ryhquhrkxi hwl nimm epm xepmir, cm cquu imeaiw cqep epm qwemwe ex khyeaim hwl eif Uakqmuum Sxpwrxw qw epm Kxaie xn epm Iml Vxwt, mqepmi xbmirmmw jf Ehq xi pmi nhepmi.
+7: I'll deliver the memo when next I see him. Give him a bit of a headstart. 
 
-2: Q cquu ouhluf salom.
-
-7: Q'uu lmuqbmi epm vmvx cpmw wmde Q rmm pqv. Oqbm pqv h jqe xn h pmhlrehie. 
