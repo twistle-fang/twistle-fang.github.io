@@ -6,7 +6,7 @@ excerpt: "???"
 image: /images/emblemPic.png
 permalink: /inquiry9.html
 ---
-<iframe src="https://open.spotify.com/embed/track/55UeGN3ii8yOooefZa8jo8" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+<iframe src="https://open.spotify.com/embed/track/2WGNFmRcApRC8znCuGtfXJ" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
 *click*
 *click*
