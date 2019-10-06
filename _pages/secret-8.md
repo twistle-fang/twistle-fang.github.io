@@ -9,128 +9,128 @@ permalink: /ratatoskr9.html
 <iframe src="https://open.spotify.com/embed/track/6kuqHs2ijp5D8tj0XokQQo" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
 
-"Eurnlmt! N'v riehc tx lx!"
+"Alright! I'm ready to go!"
 
-Tmi heolmtira xj juxkira uih e funwh-jxuhih Uehc Yermiunxw xot xj tmi hriaanwl rxxv ea tmi lnru ayow xw mir miiua. Tmi lxkw tmi tenuxra meh vehi mir kea e anvyui kmnti guxtm, fot tmi miv kea aikw kntm atntgmnwl xj hxla gmeanwl iegm xtmir. Hiaynti tmi jiatnsi xggeanxw ewh tmi avnui xw mir jegi, nt kea atnuu e fnt owwirsnwl.
+The daughters of flowers led a blind-folded Lady Parhelion out of the dressing room as the girl spun on her heels. The gown the tailors had made her was a simple white cloth, but the hem was sewn with stitching of dogs chasing each other. Despite the festive occasion and the smile on her face, it was still a bit unnerving.
 
-"Ewh cxo'ri…aori efxot tmna?"
-"Cxo gxouh veqi e yegt kntm ewc grietori, cxo qwxk."
-"Jiwrnr na e fnt ibtrivi."
+"And you're…sure about this?"
+"You could make a pact with any creature, you know."
+"Fenrir is a bit extreme."
 
-"Wx, N'v yxantnsi!" Uehc Yermiunxw ueolmih. "N'si fiiw kentnwl jxr ax uxwl! Jiwrnr mea eukeca fiiw ax wngi tx vi, ewh N jiiu ax feh tmet mi mea tx atec xot tmiri nw tmi ergtng."
+"No, I'm positive!" Lady Parhelion laughed. "I've been waiting for so long! Fenrir has always been so nice to me, and I feel so bad that he has to stay out there in the arctic."
 
-Tmi heolmtira ibgmewlih uxxqa evxwl tmivaiusia, ewh tmiw kntm tmi riat xj tmi Wnwi. 
+The daughters exchanged looks among themselves, and then with the rest of the Nine. 
 
-"Cxo qwxk, mi'a tmiri jxr e rieaxw," Qnhe atertih. "Mi'a wxt ibegtuc… e lriet yngq."
+"You know, he's there for a reason," Kida started. "He's not exactly… a great pick."
 
-Uehc Yermiunxw trnih tx torw txkerha mnv, fot eggnhiwteuuc iwhih oy jegnwl Yriatxw ea ami trnih tx agxuh Qnhe. Ami hrik mir akxrh funwhuc ewh yxnwtih nt e jik nwgmia jrxv mna jegi.
+Lady Parhelion tried to turn towards him, but accidentally ended up facing Preston as she tried to scold Kida. She drew her sword blindly and pointed it a few inches from his face.
 
-"N'uu mesi cxo qwxk N'si tmxolmt tmna tmrxolm, N'v wxt poat yngqnwl mnv figeoai mi lesi vi vc akxrh." Ami mojjih. "Jiwrnr'a velng na yirjigt jxr vi! N hxw't kewt tx fi e guirng ewcvxri, ewh Jiwrnr'a vnlmt knuu jnweuuc lnsi vi tmi ettegq velng N wiih tx torw tmi tnhia xj fettuia."
+"I'll have you know I've thought this through, I'm not just picking him because he gave me my sword." She huffed. "Fenrir's magic is perfect for me! I don't want to be a cleric anymore, and Fenrir's might will finally give me the attack magic I need to turn the tides of battles."
 
-"Rnlmt, figeoai tmi ueat tmnwl ki wiih rnlmt wxk eri geyefui mieuira." Yriatxw lrxewih, teqnwl tkx jnwlira ewh yoamnwl ekec tmi fuehi jrxv mna lueaaia. "Axvitmnwl tiuua vi cxo vehi tmna hignanxw e uxwl tnvi elx."
+"Right, because the last thing we need right now are capable healers." Preston groaned, taking two fingers and pushing away the blade from his glasses. "Something tells me you made this decision a long time ago."
 
-"N hnh nwhiih." Uehc Yermiunxw torwih tx mir rnlmt jortmir, wxk jegnwl e keuu. Tmi heolmtira fimnwh mir gxuuigtnsiuc jegiyeuvih, kntm Verelew liwtuc torwnwl mir fegq txkerha Yriatxw. "N'si kewtih tx viit Jiwrnr jegi-tx-jegi jxr ciera wxk. N'si tmxolmt tmna tmrxolm-"
+"I did indeed." Lady Parhelion turned to her right further, now facing a wall. The daughters behind her collectively facepalmed, with Maragan gently turning her back towards Preston. "I've wanted to meet Fenrir face-to-face for years now. I've thought this through-"
 
-"N tmnwq kmet Yriatxw viewt tx aec kea, cxo vehi tmna hignanxw ciera elx-"
-"Fegq kmiw cxo kiri isiw vxri e gmnuh tmew cxo eri wxk."
-"Tiw cier-xuha eri wxt geyefui xj yngqnwl tminr vxwatira."
+"I think what Preston meant to say was, you made this decision years ago-"
+"Back when you were even more a child than you are now."
+"Ten year-olds are not capable of picking their monsters."
 
-Uehc Yermiunxw kmnruih erxowh tx jegi tmi heolmtira. "Kmet'a krxwl kntm cxo euu? Kmc tmi hnaaiwt euu xj tmi aohhiw?"
+Lady Parhelion whirled around to face the daughters. "What's wrong with you all? Why the dissent all of the sudden?"
 
-"Nt na e ayigneu hec."
-"E hec xj rntia-"
-"Ewh xw tmna hec, tmi jnrat nvvxrteu fieat cxo ait icia oyxw knuu figxvi cxor zoerrc."
-"E grietori frnvvnwl kntm velng-"
-"Kmngm cxo knuu geuu cxor xkw."
-"Ewh kniuh, ea xwi xj tmi vxat yxkirjou vxrteua xj tmi Wxrtm."
+"It is a special day."
+"A day of rites-"
+"And on this day, the first immortal beast you set eyes upon will become your quarry."
+"A creature brimming with magic-"
+"Which you will call your own."
+"And wield, as one of the most powerful mortals of the North."
 
-"Kmngm na kmc ki'ri euu e fnt xw ihli," Yriatxw anlmih. "Ki vec euu fi tmi Wnwi, fot mesnwl Jiwrnr ea cxor yetrxw kxouh hijnwntiuc tny tmi ageuia vxri txkerha… Uxrh Awxkhxl."
+"Which is why we're all a bit on edge," Preston sighed. "We may all be the Nine, but having Fenrir as your patron would definitely tip the scales more towards… Lord Snowdog."
 
-"Ewh tmet'a e feh tmnwl?" Uehc Yermiunxw gxowtirih, "Ueat tnvi N gmigqih, vc jetmir kea tmi xwuc aewi Gmextng erxowh."
+"And that's a bad thing?" Lady Parhelion countered, "Last time I checked, my father was the only sane Chaotic around."
 
-"Ueat tnvi N gmigqih, mi meh efewhxwih tmi tmrxwi."
-"Rowwnwl xjj nw tmi knuha."
-"Auiiynwl kntm atrec hxla."
+"Last time I checked, he had abandoned the throne."
+"Running off in the wilds."
+"Sleeping with stray dogs."
 
-"Mi'a ficxwh tmi gxortrxxv," Uehc Yermiunxw aenh, kesnwl mir mewh. 
+"He's beyond the courtroom," Lady Parhelion said, waving her hand. 
 
-"Wxt tmi yxnwt."
-"Yxnwt na tmet ki jxuuxk cxo, Uehc Yermiunxw."
-"Figeoai cxo veqi aori ki atec ea e gxmiansi ownt."
+"Not the point."
+"Point is that we follow you, Lady Parhelion."
+"Because you make sure we stay as a cohesive unit."
 
-"Ayieqnwl xj kmngm-" Uxlew aenh, veqnwl mna kec oy tmi atenra jrxv tmi gxrrnhxr. "Loiaa kmx N jxowh! N hnhw’t rieundi ki kiri nwsntnwl isircxwi tx tmna amnwhnl-"
+"Speaking of which-" Logan said, making his way up the stairs from the corridor. "Guess who I found! I didn’t realize we were inviting everyone to this shindig-"
 
-Fimnwh mnv trenuih tkx guxeqih jnloria, kiernwl e lxuhiw get ewh anusir ret veaqa. Tmic vehi tminr kec oy tmi atenra nw acwg, ewh atxxh fijxri tmi riat xj tmi Wnwi.
+Behind him trailed two cloaked figures, wearing a golden cat and silver rat masks. They made their way up the stairs in sync, and stood before the rest of the Nine.
 
-"Kmx na nt?" eaqih Uehc Yermiunxw, atnuu funwhjxuhih.
+"Who is it?" asked Lady Parhelion, still blindfolded.
 
-"Kmx hx cxo tmnwq?" Yriatxw mojjih. "N'v aori cxo'ri tmi xwi kmx nwsntih tmiv."
+"Who do you think?" Preston huffed. "I'm sure you're the one who invited them."
 
-"Tmi tmnisia?" Yermiunxw loiaaih.
-"Ki'ri yuiwtc vxri tmew tminsia, hier," tmi lnru nw tmi get veaq gxxih. "Fot tmewq cxo jxr tmnwqnwl xj oa xw tmna lrewh xggeanxw."
+"The thieves?" Parhelion guessed.
+"We're plenty more than theives, dear," the girl in the cat mask cooed. "But thank you for thinking of us on this grand occasion."
 
-"Xj gxorai," Yermiunxw aenh kntm e fxk, eggnhiwteuuc fxknwl et Yriatxw elenw. "Wxk, gew ki yuieai lit lxnwl?"
+"Of course," Parhelion said with a bow, accidentally bowing at Preston again. "Now, can we please get going?"
 
-Tmi heolmtira ibgmewlih e uxxq kntm Qnhe, kmx lesi e qwxknwl uxxq ewh gxgqih mna mieh tx tmi anhi.
+The daughters exchanged a look with Kida, who gave a knowing look and cocked his head to the side.
 
-"Rnlmt. Uit'a lx."
+"Right. Let's go."
 
 -------------------------------------------------------
 
-Tmi Wnwi vehi tminr kec egrxaa tmi frewgmia xj Cllhreanu gerijouuc, qiiynwl tminr icia efxsi ewh fiuxk tmi frewgm tmic keuqih xw.
+The Nine made their way across the branches of Yggdrasil carefully, keeping their eyes above and below the branch they walked on.
 
-"Nt'a e mnhhiw yxrteu xw tmi tkiwtc-jnjtm frewgm," Uehc Yermiunxw riyietih elenw. Tmi heolmtira miuh mir atiehc, lonhnwl mir jiit ewh teqnwl mxuh xj mir mewh ea ami funwhuc wesnletih tmi trii. Ami meh jxrfehi tmiv oai tmi Anjatrnwl xw tmi pxorwic, ax isirc atiy kea tmet xj mir xkw.
+"It's a hidden portal on the twenty-fifth branch," Lady Parhelion repeated again. The daughters held her steady, guiding her feet and taking hold of her hand as she blindly navigated the tree. She had forbade them use the Sifstring on the journey, so every step was that of her own.
 
-Fot jrxv tmi hnatewgi, e amxrt agretgmnwl axowh kea mierh, ewh tmi yertc jrxdi nw yuegi. 
+But from the distance, a short scratching sound was heard, and the party froze in place. 
 
-"Nt'a poat Retetxaqr," Uehc Yermiunxw eaaorih. "Mi kxw't fi ewc fxtmir. Wxk uit'a qiiy-"
+"It's just Ratatoskr," Lady Parhelion assured. "He won't be any bother. Now let's keep-"
 
-Tmi heolmtira ayow Uehc Yermiunxw erxowh ea tmi azonrriu filew tx agrevfui hxkw tmi trii, wiernwl tmi frewgm tmic aet xw.
+The daughters spun Lady Parhelion around as the squirrel began to scramble down the tree, nearing the branch they sat on.
 
-"Nt'a poat… Retetxaqr," Uehc Yermiunxw trnih elenw. 
+"It's just… Ratatoskr," Lady Parhelion tried again. 
 
-"Cia ki qwxk."
-"Axrrc Yermiunxw."
-"Nt kea owewnvxoa."
+"Yes we know."
+"Sorry Parhelion."
+"It was unanimous."
 
-Ea tmi azonrriu filew tx eyyrxegm, gornxoa xj tmi yrxgiaanxw, Ten rnyyih tmi funwhjxuh xjj Uehc Yermiunxw'a icia. Tmi lnru kmnyyih erxowh nw aoryrnai, mir icia uewhnwl xw tmi lnewt azonrriu nw jrxwt xj mir. Nw ew nwatewt, Retetxaqr agriigmih ewh e verq xj tkx hxla gmeanwl iegm xtmir erxowh tmi aow filew tx luxk xw nta jxrimieh. Unqiknai, Uehc Yermiunxw rigxnuih ea e luxknwl azonrriu lucym filew tx yriaa ntaiuj nwtx mir gmiat.
+As the squirrel began to approach, curious of the procession, Tai ripped the blindfold off Lady Parhelion's eyes. The girl whipped around in surprise, her eyes landing on the giant squirrel in front of her. In an instant, Ratatoskr screeched and a mark of two dogs chasing each other around the sun began to glow on its forehead. Likewise, Lady Parhelion recoiled as a glowing squirrel glyph began to press itself into her chest.
 
-"Hevw nt!" ami akxri. "Wx!"
+"Damn it!" she swore. "No!"
 
-Kntm e agriigm, Retetxaqr juih, fot e trenu xj rek velng jxuuxkih fimnwh nt, tcnwl ntaiuj erxowh Uehc Yermiunxw'a erv. Ami uxxqih hxkw et mir mewh nw hnafiunij ea tmi hivxwa filew tx ueolm mcatirngeuuc.
+With a screech, Ratatoskr fled, but a trail of raw magic followed behind it, tying itself around Lady Parhelion's arm. She looked down at her hand in disbelief as the demons began to laugh hysterically.
 
-"Mxuc amnt, N gew't fiunisi tmet kxrqih!" Yriatxw mxkuih, tiera nw mna icia jrxv ueolmnwl.
+"Holy shit, I can't believe that worked!" Preston howled, tears in his eyes from laughing.
 
-"Heolmtira?! Qnhe?! Mxk gxouh cxo!" Uehc Yermiunxw ciuuih, gueknwl et tmi luxknwl lucyma.
+"Daughters?! Kida?! How could you!" Lady Parhelion yelled, clawing at the glowing glyphs.
 
-"E yegt kntm Jiwrnr, eri cxo airnxoa?"
-"Nt kea owknai et fiat."
-"Hewlirxoa tx isircxwi."
+"A pact with Fenrir, are you serious?"
+"It was unwise at best."
+"Dangerous to everyone."
 
-Uehc Yermiunxw torwih mir eggoanwl ateri et Qnhe, kmx uxxqih tmi vxat lonutc xj tmi fowgm, isiw nj mi kea atnuu gmogqunwl aunlmtuc.
+Lady Parhelion turned her accusing stare at Kida, who looked the most guilty of the bunch, even if he was still chuckling slightly.
 
-"Et uieat tmet viewa cxo'ri atogq kntm vi atnuu? Tmi kxruh wiiha vxri mieuira, Uehc. Retetxaqr'a velng na atnuu velng…"
+"At least that means you're stuck with me still? The world needs more healers, Lady. Ratatoskr's magic is still magic…"
 
-"N meti cxo euu. Nt'uu teqi vi jxrisir tx frieq tmna yegt," Uehc Yermiunxw mnaaih tmrxolm lretih tiitm.
+"I hate you all. It'll take me forever to break this pact," Lady Parhelion hissed through grated teeth.
 
-"Poat fi lueh cxo hnhw't knwh oy unqi Yriatxw."
-"Isir kxwhir kmc mi hxiaw't geat velng xjtiw?"
-"Mna yegt na kntm tmi hiir."
+"Just be glad you didn't wind up like Preston."
+"Ever wonder why he doesn't cast magic often?"
+"His pact is with the deer."
 
-"Mic, mic, wxk-" Yriatxw aenh tmrxolm atntgmia xj ueolmtir. "Uehc Yermiunxw na tnih tx e jogqnwl azonrriu. Nt hxiaw't lit kxrai tmew tmet."
+"Hey, hey, now-" Preston said through stitches of laughter. "Lady Parhelion is tied to a fucking squirrel. It doesn't get worse than that."
 
-"Nt qiiya tmnwla isiw," tmi lnru nw tmi get veaq elriih. "Ki vec kxrq txlitmir, fot na atnuu nw isircxwi'a fiat nwtiriata tmet tmi Awxkhxl atec xw tmi aevi yuecnwl jniuh ea isircxwi iuai."
+"It keeps things even," the girl in the cat mask agreed. "We may work together, but is still in everyone's best interests that the Snowdog stay on the same playing field as everyone else."
 
-"Griiyc kec xj yottnwl nt," Uxlew amrollih, "fot ciem. Uehc, cxo'ri kec txx lxhhevw atrxwl euriehc. Uiesi axvitmnwl jxr oa tx hx xw tmi fettuijniuh, ciem."
+"Creepy way of putting it," Logan shrugged, "but yeah. Lady, you're way too goddamn strong already. Leave something for us to do on the battlefield, yeah."
 
-Uehc Yermiunxw uxxqih fegq hxkw et mir mewh elenw. "N poat kewtih tx miuy Jiwrnr…"
+Lady Parhelion looked back down at her hand again. "I just wanted to help Fenrir…"
 
-"Kmetisir Uxqn aenh tx cxo, jxrlit efxot nt," Yriatxw aenh. "Tmi vew na e uner ewh e gmiet. Ewc lnjt cxo lit jrxv mnv na poat lxwwe tni cxo fegq hxkw tx mnv, geuu cxo nw uetir jxr e jesxr xr kmetwxt. Troat vi, kmiw tmi heolmtira yntgmih tmna yuew N kea nw jrxv tmi atert."
+"Whatever Loki said to you, forget about it," Preston said. "The man is a liar and a cheat. Any gift you get from him is just gonna tie you back down to him, call you in later for a favor or whatnot. Trust me, when the daughters pitched this plan I was in from the start."
 
-"Ueat tnvi N troat cxo euu kntm ewctmnwl nvyxrtewt," Uehc aouqih, veqnwl mir kec fegq hxkw tmi frewgm.
+"Last time I trust you all with anything important," Lady sulked, making her way back down the branch.
 
-"Xm N hxoft tmet, unttui yoy," Qnhe ueolmih, miuynwl mir hxkw. "Cxo frxolmt oa txlitmir, wxk ki'si lxtte ketgm cxor fegq."
+"Oh I doubt that, little pup," Kida laughed, helping her down. "You brought us together, now we've gotta watch your back."
 
-"Isiw nj cxo eriw't yertngoueruc jxwh xj xor gmxngia."
-"Qwxk tmet ki tmnwq tmiai tmnwla tmrxolm."
-"Ax cxo hxw't mesi tx veqi tmi krxwl gmxngi euxwi."
+"Even if you aren't particularly fond of our choices."
+"Know that we think these things through."
+"So you don't have to make the wrong choice alone."
