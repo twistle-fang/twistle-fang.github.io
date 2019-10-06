@@ -9,27 +9,27 @@ permalink: /emblem10.html
 
 <iframe src="https://open.spotify.com/embed/track/3DH7WEURyZjiAHnDbDD7s9" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-2: S lrsxu sl'b ijyal rsqr-lswo lrog rin ix owjvow yp lrosm ydx, nyx'l gya?
+2: I think it's about high-time they had an emblem of their own, don't you?
 
-7: S lryaqrl S dib nmidsxq lrobo pym zyblomslg. Bsxko drox ny do qy imyaxn rixnsxq yal lslvob ixn bgwjyvb?
+7: I thought I was drawing these for posterity. Since when do we go around handing out titles and symbols?
 
-2: Xyl abon ly lro snoi lril gya'mo i nmsplom gol? Gya bzoiu ib lryaqr gya imo xyl yxo yp lrow.
+2: Not used to the idea that you're a drifter yet? You speak as though you are not one of them.
 
-7: Ix ixswiv, i xawjom, i kyvym, i bsqsv, i joibl, ixn i lslvo. Gya dixl ly inn wymo ly yam xiwob?
+7: An animal, a number, a color, a sigil, a beast, and a title. You want to add more to our names?
 
-2: Xy willom lro yalkywo yp lrsb psqrl, gya kix xy vyxqom noxg lril do imo ivyxo romo, gya axnomblixn lril? Do qy rywo, do vsco ym nso… Yam blymg sb xyd roicsvg oxldsxon dslr lro nmsplomb. Do imo lrog, ixn lrog imo ix sxbocomijvo ziml yp dromo do imo ixn dril do rico jokywo.
+2: No matter the outcome of this fight, you can no longer deny that we are alone here, you understand that? We go home, we live or die… Our story is now heavily entwined with the drifters. We are they, and they are an inseverable part of where we are and what we have become.
 
-7: S'vv nmid bywolrsxq az.
+7: I'll draw something up.
 
-2: Xyl jin. Sp yxvg gyam rixndmslsxq vyyuon rivp ib xsko.
+2: Not bad. If only your handwriting looked half as nice.
 
-7: Ldy kmoblsxq dicob ym lmoo myylb, nozoxnoxl yx ryd gya vyyu. Nscsnon il lro jibo, bocomon pmyw oikr ylrom ib lrog ivdigb imo, jal ivdigb tysxon tabl imyaxn lro onqob. 
+7: Two cresting waves or tree roots, dependent on how you look. Divided at the base, severed from each other as they always are, but always joined just around the edges. 
 
-2: Nsbaxslg ib i qasbo pym axslg.
+2: Disunity as a guise for unity.
 
-7: Ryd zyolsk. S tabl kyavnx’l lrsxu yp ixglrsxq ylrom lrix lril nawj lmoo lril uoozb zyzzsxq az, ixn rog, lro pikl lril S wsqrl rico nmydxon i kyazvo nigb iqy.
+7: How poetic. I just couldn’t think of anything other than that dumb tree that keeps popping up, and hey, the fact that I might have drowned a couple days ago.
 
-2: Ixn i bax sx lro wsnnvo?
+2: And a sun in the middle?
 
-7: Vobl do pymqol drg do'mo romo.
+7: Lest we forget why we're here.
 
