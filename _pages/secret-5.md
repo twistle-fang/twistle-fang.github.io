@@ -8,88 +8,89 @@ permalink: /iron9.html
 ---
 <iframe src="https://open.spotify.com/embed/track/12lroPHknN4YV3GgLM1nUi" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-"Opkik'r fw qixw xik qw opkrk pquur, fw qixw opqht fwj gxuj."
-"Fwj xwk xl opkrk jfdr Q'uu roiqtk opk ixht opfo iqhp bqop qixw pxujr"
+*"There's an iron ore in these hills, an iron thick and bold."*
+*"And one of these days I'll strike the rock that rich with iron holds"*
 
-Yikroxw obqohpkj qw pqr jikfvukrr rofok, roqiiqwm ox opk rxnwj xl opk vnrqh fixnwj pqv. Pqr kdkr rpfiykwkj, opkw nwlxhnrkj, rpfiykwkj, opkw nwlxhnrkj. Opk gfij bfr rqwmqwm fmfqw, fwj pk jkvfwjkj opkqi fookwoqxw. Opk ikvfqwjki xl opk wqwk rpqlokj fixnwj pqv, roqiikj gd opk kwjukrr rxwm'r qwokwrqod rbkuuqwm.
+Preston twitched in his dreamless state, stirring to the sound of the music around him. His eyes sharpened, then unfocused, sharpened, then unfocused. The bard was singing again, and he demanded their attention. The remainder of the nine shifted around him, stirred by the endless song's intensity swelling.
 
-"Fwj qw opfo jfd, vd rbkko hpkiqk, bk'uu hxvk pxvk pfwj-qw-pfwj"
-"Uqtk mqjjd uxakir, dxnwm fwj likk, bqop iqhpkr inw uqtk rfwj"
+*"And in that day, my sweet cherie, we'll come home hand-in-hand"*
+*"Like giddy lovers, young and free, with riches run like sand"*
 
-Opk gxwjr fixnwj Yikroxw'r fivr ronwm bqop opkqi lfvquqfi vfmqh, gno opkd gkhfvk opxiwr bqop opk gfij'r rxwm. Jkryqok opikk dkfir xl qvyiqrxwvkwo, rxvk opqwmr hxnuj wxo gk qmwxikj. Opk gxwjr bkik uqtk kukhoiqhqod, pxujqwm f rxio xl yiqhtuqwm yfqw opfo kggkj fwj luxbkj snro kwxnmp ox tkky xwk qw qor mifry. Rukky bfr rhfihk, fwj oqvk qvyxrrqguk ox oifht rfak lxi opk lfqwo ginrp xl opk xnorqjk bxiuj opkd pfj bqop opk krhfykkr.
+The bonds around Preston's arms stung with their familiar magic, but they became thorns with the bard's song. Despite three years of imprisonment, some things could not be ignored. The bonds were like electricity, holding a sort of prickling pain that ebbed and flowed just enough to keep one in its grasp. Sleep was scarce, and time impossible to track save for the faint brush of the outside world they had with the escapees.
 
-"Opkik'r fw qixw xik qw opkrk pquur, fw qixw xwhk bk roxuk."
-"Fw qixw lximkj lxi rbxijr fwj rpqkujr fwj wxo xni bkjjqwm'r oxuu."
+*"There's an iron ore in these hills, an iron once we stole."*
+*"An iron forged for swords and shields and not our wedding's toll."*
 
-Yikroxw'r kdkr rpfiykwkj bqop opk rxwm'r udiqhr, opk gxwjr lufiqwm ox uqlk qw yniyuk uqmpo. Pk uxxtkj lxi rxvkopqwm, fwdopqwm, ox jqroifho pqvrkul lixv opqr vfjwkrr. Pqr kdkr rkfihpkj qw f likwed, fwj bqop f yfqwlnu fhpk opkd gkmfw ox uxxt gkdxwj bpfo bfr qw opqr ikfuv. Pk rhfwwkj lxi fw krhfyk, vqroftkwud ufdqwm kdkr nyxw opk rkfvr xl ikfuqod, opfo bpqhp rpxnuj wxo gk rkkw. Fwj qw f pfek xl wkxw uqmpo fwj qvyxrrqguk rpfjkr, pk rfb fw qvyxrrqguk lqmnik.
+Preston's eyes sharpened with the song's lyrics, the bonds flaring to life in purple light. He looked for something, anything, to distract himself from this madness. His eyes searched in a frenzy, and with a painful ache they began to look beyond what was in this realm. He scanned for an escape, mistakenly laying eyes upon the seams of reality, that which should not be seen. And in a haze of neon light and impossible shades, he saw an impossible figure.
 
-F dxnwm mqiu, rbfuuxbkj ny gd pki ixgkr, roixjk lxibfij opixnmp opk jqvkwrqxwr xl ikfuqod. Rpk bfutkj ruxbud, gno frrnikjud opixnmp opk onwwku xl qvyxrrqguk uqmpo, hfiidqwm f mqmfwoqh pfiy qw pki fivr. Gkpqwj pki, f ofuu ixgkj ufjd bqop pki pkfj gxbkj, obx ufwokiw rofllr fhixrr pki gfht. Yikroxw wkfiud hiqkj bqop ikuqkl.
+A young girl, swallowed up by her robes, strode forward through the dimensions of reality. She walked slowly, but assuredly through the tunnel of impossible light, carrying a gigantic harp in her arms. Behind her, a tall robed lady with her head bowed, two lantern staffs across her back. Preston nearly cried with relief.
 
-"Ufjd-" pk mfrykj.
+"Lady-" he gasped.
 
-Ofq uxxtkj ny, oidqwm ox lqmnik xno bpkik opk axqhk pfj hxvk lixv, gno Yikroxw twkb opfo opk ufwokiw hfiiqki hxnuj wxo rkk pqv dko. Lxi opk lqiro oqvk qw f uxwm oqvk, opxnmp, Yikroxw lkuo pqr pkfio rbkuu bqop pxyk.
+Tai looked up, trying to figure out where the voice had come from, but Preston knew that the lantern carrier could not see him yet. For the first time in a long time, though, Preston felt his heart swell with hope.
 
-Opk obx bfutkj xw lxi bpfo rkkvkj uqtk lxikaki, nwoqu lqwfuud opkd rokyykj qwox opk ikfuv xl opk mqfwo, rokyyqwm rxloud qwox opk vqjro xl opk hqihuk. Yikroxw tkyo pqr gikfopqwm roquu, gno pk hxnuj yifhoqhfuud lkku opk kchqokvkwo kvfwfoqwm lixv pqr gixopkir.
+The two walked on for what seemed like forever, until finally they stepped into the realm of the giant, stepping softly into the midst of the circle. Preston kept his breathing still, but he could practically feel the excitement emanating from his brothers.
 
-"Fwj qw opfo jfd, vd jkfikro mkv, bk'uu jqk uqtk yqmr xw rbxijr."
-"Bk'uu gkwj fwj gikft xw rykfir fwj rpqkujr-"
+*"And in that day, my dearest gem, we'll die like pigs on swords."*
+*"We'll bend and break on spears and shields-"*
 
-"Ryfqufrhxi."
+"Spailascor."
 
-Ufjd Yfipkuqxw'r axqhk ikrxwfokj bqop yxbki, rkwjqwm f mnro xl bqwj ifoouqwm opixnmp opk gfir xl opk hkuur. Yikroxw lkuo opk roiqwmr gqwjqwm pqv rbfd nwjki opk qwlunkwhk xl pki vfmqh. Opk mqfwo roxyykj pqr rxwm, uxxtqwm xaki bqopxno fvnrkvkwo.
+Lady Parhelion's voice resonated with power, sending a gust of wind rattling through the bars of the cells. Preston felt the strings binding him sway under the influence of her magic. The giant stopped his song, looking over without amusement.
 
-"Dxn'ak ikoniwkj." Opk mqfwo wxokj. Pk jqj wxo rkkv yukfrkj, gno wkqopki jqj pk rkkv rhfikj. Yikroxw'r guxxj yiqhtkj bqop opk fwoqhqyfoqxw, bqop opk lkfi xl bfohpqwm opk mqfwo hno pki jxbw fmfqw, gno rxvkopqwm kurk bfr yiqhtqwm fo opk gfht xl pqr vqwj. Pk gfikud pkfij opkv, gno f okuuofuk rbqrp xl f huxft pfj Yikroxw rbqaku pqr pkfj fixnwj.
+"You've returned." The giant noted. He did not seem pleased, but neither did he seem scared. Preston's blood pricked with the anticipation, with the fear of watching the giant cut her down again, but something else was pricking at the back of his mind. He barely heard them, but a telltale swish of a cloak had Preston swivel his head around.
 
-"Rppp… znqko wxb." Dke hfhtukj rxloud, hfo vfrt muqwoqwm qw opk jfit hkuu. Rfbdki rfo xw pqr pfnwhpkr gkpqwj pki, bfohpqwm opk rhkwk nwlxuj qw lixwo xl opkv bqop hfnoqxw. Yikroxw uxxtkj gfht fo Ufjd Yfipkuqxw fwj Ofq, opkw fo opk opqkakr fmfqw, pxiixi jfbwqwm xw pqv.
+"Shhh… quiet now." Yez cackled softly, cat mask glinting in the dark cell. Sawyer sat on his haunches behind her, watching the scene unfold in front of them with caution. Preston looked back at Lady Parhelion and Tai, then at the thieves again, horror dawning on him.
 
-"Dxn'ik likkqwm vk?!" pk bpqrykikj fwmiqud. "Mko Tqjf!"
+"You're freeing me?!" he whispered angrily. "Get Kida!"
 
-"Ufjd'r xijkir." Rfbdki ikryxwjkj, "Wxb pxuj roquu."
+"Lady's orders." Sawyer responded, "Now hold still."
 
-Yikroxw'r pkfj rbfv bqop hxwlnrqxw, fwj pk roinmmukj fr Dke oiqkj ox hno pqr gxwjr. "Wx, qo rpxnuj gk-"
+Preston's head swam with confusion, and he struggled as Yez tried to cut his bonds. "No, it should be-"
 
-Gno f uxb pnv gkmfw ox lquu opk ixxv, fwj Yikroxw lkuo opk Wqwk rpnjjki nwjki qor mifry. Opk gqwjqwmr fixnwj Yikroxw gkmfw ox muxb bqop f mikfoki qwokwrqod fr opk gfij mqfwo gkmfw ox rqwm xwhk vxik. Pqr rxlo, vxniwqwm twkuu rpxo twqakr qwox opk vqwjr xl opxrk bpx pkfij qo, fwj kakw Dke fwj Rfbdki rkkvkj ox ikhxqu lixv opk wxqrk. Yikroxw hiqwmkj nwjki opk rxnwj fwj opk rpxht qo gixnmpo, gno pk hxnuj vftk xno Ufjd Yfipkuqxw yikyfiqwm pki hxnwoki.
+But a low hum began to fill the room, and Preston felt the Nine shudder under its grasp. The bindings around Preston began to glow with a greater intensity as the bard giant began to sing once more. His soft, mourning knell shot knives into the minds of those who heard it, and even Yez and Sawyer seemed to recoil from the noise. Preston cringed under the sound and the shock it brought, but he could make out Lady Parhelion preparing her counter.
 
-Bqop f jklo roixtk xl opk pfiy, opk gfij'r rxwm gixtk, fwj opk rbxij xl opk wxiop rokyykj qwox fhoqxw. Fr rpk jfwhkj fixnwj opk vfw, vfmqh pfwjr fyykfikj ox hfiid opk rxwm xw opk pfiy, yunhtqwm fwj obqroqwm bqop nwwfonifu rykkj. Rxnwjr xl jinvr fwj bfilfik lquukj opk fqi, hxnwokiqwm kakid wxok opk gfij rfwm xl pqr xbw rxwm. Qo bfr hfyoqafoqwm, gno yxbkilnu ox fw kcokwo opfo Yikroxw hxnuj wxo dko twxb. Fwj opkw, fr rpk xykwkj pki vxnop ox rqwm, f gufjk ruqj xno xl pki rukkak fwj rpk roinht fo opk mqfwo.
+With a deft stroke of the harp, the bard's song broke, and the sword of the north stepped into action. As she danced around the man, magic hands appeared to carry the song on the harp, plucking and twisting with unnatural speed. Sounds of drums and warfare filled the air, countering every note the bard sang of his own song. It was captivating, but powerful to an extent that Preston could not yet know. And then, as she opened her mouth to sing, a blade slid out of her sleeve and she struck at the giant.
 
-"Vd gxwkr fik bixnmpo xl qixw, vd gxjd bixnmpo xl rokku,"
-"Vd pkfio f bfwjkiqwm bfiiqxi, wxb dkfiwqwm lxi ox pkfu,"
-"Opk ykiqukj yuqmpo xl bquokj vqmpo qw ikjr fwj mxujr fwj mikkwr."
-"Rx rfak dxni gikfop, fbfqo dxni jkfop, Q'ak mxwk fwj lxnwj opk vkfwr."
+*"My bones are wrought of iron, my body wrought of steel,"*
+*"My heart a wandering warrior, now yearning for to heal,"*
+*"The periled plight of wilted might in reds and golds and greens."*
+*"So save your breath, await your death, I've gone and found the means."*
 
-Ufjd Yfipkuqxw'r gufjk ruqj fmfqwro Ryfqufrhxi'r rtqw fr rpk jfwhkj fuxwm, ukfaqwm iqakor qw pqr vqiixikj lukrp fwj rkwjqwm pfirp ryfitr ny qwox opk fqi. Ofq, wxb ikhxakikj lixv opk qwqoqfu xwrufnmpo xl rxnwj, oxxt pki jnfu ufwokiwr rofllr fwj gkmfw ox jqikho opkv qw mudypr opixnmpxno opk fqi. Yikroxw gkmfw ox qwokiyiko opkv bpkw pk rnjjkwud lkuo ixnmp pfwjr lxihqwm pqv jxbw. Bpkw pk obqrokj pqr pkfj gfht fixnwj, Rfbdki pfj yqwwkj pqv, fwj Dke bfr lifwoqhfuud hnooqwm opk gqwjqwmr fmfqw.
+Lady Parhelion's blade slid against Spailascor's skin as she danced along, leaving rivets in his mirrored flesh and sending harsh sparks up into the air. Tai, now recovered from the initial onslaught of sound, took her dual lanterns staffs and began to direct them in glyphs throughout the air. Preston began to interpret them when he suddenly felt rough hands forcing him down. When he twisted his head back around, Sawyer had pinned him, and Yez was frantically cutting the bindings again.
 
-"Pniid." Rfbdki mixbukj, tkkyqwm pqr kdkr xw opk lqmpo fpkfj.
-"Oidqwm ox." Dke mixbukj gfht. Pki twqlk lqwfuud ruqyykj nwjki opk gqwjqwmr xw Yikroxw'r uklo fiv. Fr opkd lkuu fbfd, f rpnjjki xl ikuqkl yfrrkj opixnmp Yikroxw, fwj pk wkfiud rqmpkj fr opk yfqw rngrqjkj. Qo bfr guqrrlnu ox gk likk xl opk fmxwd, kakw f yxioqxw xl qo, floki opqr uxwm. Pk bfohpkj opixnmp bfokid kdkr fr opk jfwhk hxwoqwnkj.
+"Hurry." Sawyer growled, keeping his eyes on the fight ahead.
+"Trying to." Yez growled back. Her knife finally slipped under the bindings on Preston's left arm. As they fell away, a shudder of relief passed through Preston, and he nearly sighed as the pain subsided. It was blissful to be free of the agony, even a portion of it, after this long. He watched through watery eyes as the dance continued.
 
-"Vd gufjk pfr ofrokj gfoouk, vd pfiy pfr lkj qor lquu"
-"Gno Q hfw'o ixg f yfnyki, wxo kakw xl likkbquu."
-"F gxiixbkj gufjk, f rkf xl sfjk, lxni wxxrkr qw ixb."
-"Dxn lxihkj vd pfwj xw lxikqmw ufwjr fwj wxb opkd uqk gkuxb."
+*"My blade has tasted battle, my harp has fed its fill"*
+*"But I can't rob a pauper, not even of freewill."*
+*"A borrowed blade, a sea of jade, four nooses in row."*
+*"You forced my hand on foreign lands and now they lie below."*
 
-Fwxopki rofwef pkfiokwkj opk lqmpo. Opk mqfwo rbnwm bqop aqmxi, pxyqwm ox hinrp Ufjd Yfipkuqxw fr rpk jfwhkj fgxno, jqikhokj qw pki lkiaxi gd Ofq. Bpquk wxwk xl pqr pqor ufwjkj, f roifwmk rxio xl vfmqh hxwoqwnkj ox yxni lixv pqv fr pk rfwm rqukwoud. Yikroxw hxnuj wxo pkfi pqr axqhk, gno qo rkkvkj fr opxnmp Ufjd Yfipkuqxw hxnuj. Rpk roinht bqop mikfo rykkj fwj fhhnifhd qwox opk mqfwo'r lukrp, gno bqop kakid guxb pki xbw roikwmop rkkvkj ox bfwk. Gkfjr xl rbkfo wxb ixuukj jxbw pki gixb.
+Another stanza heartened the fight. The giant swung with vigor, hoping to crush Lady Parhelion as she danced about, directed in her fervor by Tai. While none of his hits landed, a strange sort of magic continued to pour from him as he sang silently. Preston could not hear his voice, but it seemed as though Lady Parhelion could. She struck with great speed and accuracy into the giant's flesh, but with every blow her own strength seemed to wane. Beads of sweat now rolled down her brow.
 
-Dke hnirkj fr opk gqwjqwmr xw Yikroxw'r iqmpo fiv hno qwox pki xbw pfwj, ukfaqwm f oifqu xl rvxtk gkpqwj. Rpk gkmfw rfbqwm aqmxixnrud, ukfaqwm gkpqwj opk yikroqmk xl f hukfw hno. Rfbdki, roquu pxujqwm jxbw Yikroxw, bfohpkj nwvxaqwmud. Qo bfr roifwmk kwxnmp rkkqwm opk obx xl opkv qw f rofok xl lkfi, gno opk roifwmki lkfo bfr bfohpqwm Ofq rkwj wkiaxnr mufwhkr fr pqr hkuu. Yikroxw ikfuqekj, bqop f gqo xl f rofio, opfo Ofq bfrw'o rnik Ufjd Yfipkuqxw bfr mxqwm ox bqw. Rpk bfrw'o rnik ql rpk'j kakw gnd kwxnmp oqvk.
+Yez cursed as the bindings on Preston's right arm cut into her own hand, leaving a trail of smoke behind. She began sawing vigorously, leaving behind the prestige of a clean cut. Sawyer, still holding down Preston, watched unmovingly. It was strange enough seeing the two of them in a state of fear, but the stranger feat was watching Tai send nervous glances as his cell. Preston realized, with a bit of a start, that Tai wasn't sure Lady Parhelion was going to win. She wasn't sure if she'd even buy enough time.
 
-F rofit hid rkwo kakidxwk'r pkfjr rwfyyqwm gfht ox opk gfoouk. Dke yfnrkj hxuj qw pki bxit, roquu pxujqwm f gniwqwm roiqwm qw pki pfwj, fr Ufjd Yfipkuqxw bfr rufvvkj qwox opk luxxi gd opk mqfwo'r yfuv. Qw fw qwrofwo, opk mqiu bfr gfht ny, gno pki ukmr bxggukj fwj opk pfwjr xw opk pfiy yunhtkj opkqi vkuxjd gfht ny bqop f rofmmkiqwm yfhk. Opk mqfwo vxakj qw lxi f tquuqwm guxb, gno Ufjd Yfipkuqxw'r rxwm rpxo gfht ny.
+A stark cry sent everyone's heads snapping back to the battle. Yez paused cold in her work, still holding a burning string in her hand, as Lady Parhelion was slammed into the floor by the giant's palm. In an instant, the girl was back up, but her legs wobbled and the hands on the harp plucked their melody back up with a staggering pace. The giant moved in for a killing blow, but Lady Parhelion's song shot back up.
 
-"Vd wfvk qr opfo xl rofiuqmpo, vd wfvk qr opfo xl rwxb"
-"Rx pkfi vd hid dxn hikfoqw, lxi opkrk obx opqwmr Q twxb"
-"Vd rxwm rpfuu ikqmw xw opqr jxvfqw, dxn vnijkixnr hxbuqwm rbqwk-"
-"Xni rofonkr gixtk, opk lufvk'r gkkw roxtkj, dxn'uu wkaki gikft opk Wqwk."
+*"My name is that of starlight, my name is that of snow"*
+*"So hear my cry you creatin, for these two things I know"*
+*"My song shall reign on this domain, you murderous cowling swine-"*
+*"Our statues broke, the flame's been stoked, you'll never best the Nine."*
 
-Dke rkakikj opk lqwfu hxij xl Yikroxw'r gqwjqwmr, fwj pk vkuokj ox opk luxxi qw f yquk xl bikhtkj wkiakr, nwfguk ox vxak. Pqr gikfop hfvk qw sfmmkj bqop opk likkjxv lixv pqr qvyiqrxwvkwo, lixv opk oxionixnr gxwjr bpqhp pkuj pqv. Pk gfikud ikmqrokikj bpkw Dke fwj Rfbdki vkuokj gfht opixnmp opk ikfuvr, fwj pk pfj wx qjkf pxb pk kwjkj ny pxqrokj ny gd Ofq xw opk xopki rqjk xl opk sfqu'r gfir.
+Yez severed the final cord of Preston's bindings, and he melted to the floor in a pile of wrecked nerves, unable to move. His breath came in jagged with the freedom from his imprisonment, from the torturous bonds which held him. He barely registered when Yez and Sawyer melted back through the realms, and he had no idea how he ended up hoisted up by Tai on the other side of the jail's bars.
 
-Gno pk rfb fr opk gfij fwj Ufjd Yfipkuqxw rznfikj xll qw f lqwfu kchpfwmk xl mufwhkr, opk gfij'r uqyr roquu vxaqwm. Ufjd Yfipkuqxw pkuj pki mixnwj, ynooqwm pkirkul gkobkkw Ofq fwj Yikroxw'r uqvy lxiv, bfqoqwm lxi rxvkopqwm ox pfyykw. Opk gfij ryxtk f rqwmuk bxij, fwj Ufjd Yfipkuqxw'r kwoqik gxjd gkmfw ox rpftk bqop ifhtr xl yfqw. Rpk biqopkj, ikvfqwqwm rofwjqwm fwj rofubfio, gno nwfguk ox hxwoixu pki gxjd lixv bpfokaki rykuu pk pfj yufhkj. Muxbqwm rdvgxur fwj mudypr kwakuxykj pki kwoqik gxjd, luqhtkiqwm qw fwj xno xl kcqrokwhk bqop yxyr xl bpqok fwj ikj uqmpo. 
+But he saw as the bard and Lady Parhelion squared off in a final exchange of glances, the bard's lips still moving. Lady Parhelion held her ground, putting herself between Tai and Preston's limp form, waiting for something to happen. The bard spoke a single word, and Lady Parhelion's entire body began to shake with racks of pain. She writhed, remaining standing and stalwart, but unable to control her body from whatever spell he had placed. Glowing symbols and glyphs enveloped her entire body, flickering in and out of existence with pops of white and red light. 
 
-Fwj opkw opkd bkik mxwk, Ofq hfiidqwm Yikroxw fr opkd ifw lixv opk ikfuv ox bpkikaki opkd pfj hxvk lixv. Ofq opikb wkiaxnr mufwhkr gkpqwj pki, fwj rnjjkwud Ufjd Yfipkuqxw bfr gd opkqi rqjk fr bkuu, inwwqwm ox vfohp yfhk. Opkd ifw lxi f rpxio jqrofwhk fwj snvykj xno qwox fw xft-yfwkukj ixxv. Opk yxiofu gkobkkw opk ikfuvr rpno gkpqwj opkv bqop f jklqwqok rkfu, fwj Ofq ufwjkj pfij xw opk luxxi, jixyyqwm Yikroxw fr rpk jqj rx. Pk lxihkj pqvrkul ny qvvkjqfokud, oidqwm ox yikrkiak f vxjqhnv xl jqmwqod.
+And then they were gone, Tai carrying Preston as they ran from the realm to wherever they had come from. Tai threw nervous glances behind her, and suddenly Lady Parhelion was by their side as well, running to match pace. They ran for a short distance and jumped out into an oak-paneled room. The portal between the realms shut behind them with a definite seal, and Tai landed hard on the floor, dropping Preston as she did so. He forced himself up immediately, trying to preserve a modicum of dignity.
 
-Ufjd Yfipkuqxw pqo opk luxxi bqop mifhk, gno gifhkj pkirkul fmfqwro opk gkjrofwj fr pki hxwjqoqxw bxirkwkj. Opk mudypr rbqiuqwm fixnwj pki jqj wxo hkfrk bqop opk gfij'r fgrkwhk, fwj qwrokfj opkd gkmfw ox gnid opkvrkuakr qw pki rtqw, hfnrqwm pki ox rpftk fr opkd vfjk hxwofho. Bqop f rxlo hid, rpk hxuufyrkj xwox xwk twkk, ukfwqwm xw opk pfiy, fwj opkw yfrrkj xno fuoxmkopki.
+Lady Parhelion hit the floor with grace, but braced herself against the bedstand as her condition worsened. The glyphs swirling around her did not cease with the bard's absence, and instead they began to bury themselves in her skin, causing her to shake as they made contact. With a soft cry, she collapsed onto one knee, leaning on the harp, and then passed out altogether.
 
-Gklxik Yikroxw hxnuj oftk qw opk rpxht xl bpfo pfj snro pfyykwkj, pk lkuo pqr xbw aqrqxw gkmqw ox lfjk fbfd. Pk bkuhxvkj opk Rqlroiqwm, opfo lfvquqfi hxwwkhoqxw, bpkw qo bfr xllkikj, gno pqr gxjd mfak ny wxwkopkukrr. Ofq gkwo jxbw ox rqo pqv nyiqmpo fmfqw, yufhqwm f pfwj xw pqr rpxnujki.
+Before Preston could take in the shock of what had just happened, he felt his own vision begin to fade away. He welcomed the Sifstring, that familiar connection, when it was offered, but his body gave up nonetheless. Tai bent down to sit him upright again, placing a hand on his shoulder.
 
-"Mxxj ox rkk dxn, Yikroxw."
+"Good to see you, Preston."
 
-Yikroxw hufyykj pqr pfwj xw Ofq'r pfwj, hpnhtuqwm nwjki pqr gikfop. "Mxxj ox rkk dxn gxop."
+Preston clapped his hand on Tai's hand, chuckling under his breath. "Good to see you both."
 
-Fwj bqop f rqmp, Yikroxw jiqlokj xll qwox opk lqiro oink rukky pk'j pfj qw opikk dkfir.
+And with a sigh, Preston drifted off into the first true sleep he'd had in three years.
+
