@@ -10,7 +10,7 @@ permalink: /dibs7.html
 
 Reed cocked another arrow into the crossbow, ready to take aim at the next wave of skeletons.
 
-**You're ill-suited for large groupings.
+**You're ill-suited for large groupings.**
 
 With a shake of his head, Reed mumbled back under his breath, "Tell me something I don't know. I need something big and nasty to shoot at."
 
@@ -32,13 +32,13 @@ His hunter's mark shone true, a perfect shot for a perfect situation. The great 
 
 A cheer sounded from a few below, shouting his name, but Reed stumbled back against the wall's thin borders. A demanding voice echoed through his head-
 
-**Healing! You need-
+**Healing! You need-**
 
 Reed pressed a hand against his ribcage, hoping it wouldn't come away bloody. As soon as he touched his chest, his vision blurred and he doubled over onto the parapet in pain.
 
 "N-no…. healer-" he gasped out. "Dead, below. Trampled."
 
-**Then find-
+**Then find-**
 
 He threw Tai out of his head with a rough shove, nearly losing consciousness in the process. He could feel her fuming behind the Sifstring, but rules were rules. An injury like this was not to be shared, especially not among just two of them so badly battered already.
 
@@ -48,7 +48,7 @@ In a surge of mending, Reed pushed himself back up once more and looked down to 
 
 "Back," Reed whispered. He opened the Sifstring once more, and a much more calmer Lantern Carrier sat on the other side, assessing his damage.
 
-**Your wounds are healed, but your body is weak. You are exhausted.
+**Your wounds are healed, but your body is weak. You are exhausted.**
 
 "With Andel's amazing healing, we stand a chance. Let's give it a few more hours until we let up."
 
