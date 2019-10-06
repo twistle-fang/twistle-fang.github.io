@@ -8,18 +8,19 @@ permalink: /iron9.html
 ---
 <iframe src="https://open.spotify.com/embed/track/12lroPHknN4YV3GgLM1nUi" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-*"There's an iron ore in these hills, an iron thick and bold."*
-*"And one of these days I'll strike the rock that rich with iron holds"*
+***"There's an iron ore in these hills, an iron thick and bold."***
+
+***"And one of these days I'll strike the rock that rich with iron holds"***
 
 Preston twitched in his dreamless state, stirring to the sound of the music around him. His eyes sharpened, then unfocused, sharpened, then unfocused. The bard was singing again, and he demanded their attention. The remainder of the nine shifted around him, stirred by the endless song's intensity swelling.
 
-*"And in that day, my sweet cherie, we'll come home hand-in-hand"*
-*"Like giddy lovers, young and free, with riches run like sand"*
+***"And in that day, my sweet cherie, we'll come home hand-in-hand"***
+***"Like giddy lovers, young and free, with riches run like sand"***
 
 The bonds around Preston's arms stung with their familiar magic, but they became thorns with the bard's song. Despite three years of imprisonment, some things could not be ignored. The bonds were like electricity, holding a sort of prickling pain that ebbed and flowed just enough to keep one in its grasp. Sleep was scarce, and time impossible to track save for the faint brush of the outside world they had with the escapees.
 
-*"There's an iron ore in these hills, an iron once we stole."*
-*"An iron forged for swords and shields and not our wedding's toll."*
+***"There's an iron ore in these hills, an iron once we stole."***
+***"An iron forged for swords and shields and not our wedding's toll."***
 
 Preston's eyes sharpened with the song's lyrics, the bonds flaring to life in purple light. He looked for something, anything, to distract himself from this madness. His eyes searched in a frenzy, and with a painful ache they began to look beyond what was in this realm. He scanned for an escape, mistakenly laying eyes upon the seams of reality, that which should not be seen. And in a haze of neon light and impossible shades, he saw an impossible figure.
 
@@ -31,8 +32,8 @@ Tai looked up, trying to figure out where the voice had come from, but Preston k
 
 The two walked on for what seemed like forever, until finally they stepped into the realm of the giant, stepping softly into the midst of the circle. Preston kept his breathing still, but he could practically feel the excitement emanating from his brothers.
 
-*"And in that day, my dearest gem, we'll die like pigs on swords."*
-*"We'll bend and break on spears and shields-"*
+***"And in that day, my dearest gem, we'll die like pigs on swords."***
+***"We'll bend and break on spears and shields-"***
 
 "Spailascor."
 
@@ -52,20 +53,20 @@ But a low hum began to fill the room, and Preston felt the Nine shudder under it
 
 With a deft stroke of the harp, the bard's song broke, and the sword of the north stepped into action. As she danced around the man, magic hands appeared to carry the song on the harp, plucking and twisting with unnatural speed. Sounds of drums and warfare filled the air, countering every note the bard sang of his own song. It was captivating, but powerful to an extent that Preston could not yet know. And then, as she opened her mouth to sing, a blade slid out of her sleeve and she struck at the giant.
 
-*"My bones are wrought of iron, my body wrought of steel,"*
-*"My heart a wandering warrior, now yearning for to heal,"*
-*"The periled plight of wilted might in reds and golds and greens."*
-*"So save your breath, await your death, I've gone and found the means."*
+***"My bones are wrought of iron, my body wrought of steel,"***
+***"My heart a wandering warrior, now yearning for to heal,"***
+***"The periled plight of wilted might in reds and golds and greens."***
+***"So save your breath, await your death, I've gone and found the means."***
 
 Lady Parhelion's blade slid against Spailascor's skin as she danced along, leaving rivets in his mirrored flesh and sending harsh sparks up into the air. Tai, now recovered from the initial onslaught of sound, took her dual lanterns staffs and began to direct them in glyphs throughout the air. Preston began to interpret them when he suddenly felt rough hands forcing him down. When he twisted his head back around, Sawyer had pinned him, and Yez was frantically cutting the bindings again.
 
 "Hurry." Sawyer growled, keeping his eyes on the fight ahead.
 "Trying to." Yez growled back. Her knife finally slipped under the bindings on Preston's left arm. As they fell away, a shudder of relief passed through Preston, and he nearly sighed as the pain subsided. It was blissful to be free of the agony, even a portion of it, after this long. He watched through watery eyes as the dance continued.
 
-*"My blade has tasted battle, my harp has fed its fill"*
-*"But I can't rob a pauper, not even of freewill."*
-*"A borrowed blade, a sea of jade, four nooses in row."*
-*"You forced my hand on foreign lands and now they lie below."*
+***"My blade has tasted battle, my harp has fed its fill"***
+***"But I can't rob a pauper, not even of freewill."***
+***"A borrowed blade, a sea of jade, four nooses in row."***
+***"You forced my hand on foreign lands and now they lie below."***
 
 Another stanza heartened the fight. The giant swung with vigor, hoping to crush Lady Parhelion as she danced about, directed in her fervor by Tai. While none of his hits landed, a strange sort of magic continued to pour from him as he sang silently. Preston could not hear his voice, but it seemed as though Lady Parhelion could. She struck with great speed and accuracy into the giant's flesh, but with every blow her own strength seemed to wane. Beads of sweat now rolled down her brow.
 
@@ -73,10 +74,10 @@ Yez cursed as the bindings on Preston's right arm cut into her own hand, leaving
 
 A stark cry sent everyone's heads snapping back to the battle. Yez paused cold in her work, still holding a burning string in her hand, as Lady Parhelion was slammed into the floor by the giant's palm. In an instant, the girl was back up, but her legs wobbled and the hands on the harp plucked their melody back up with a staggering pace. The giant moved in for a killing blow, but Lady Parhelion's song shot back up.
 
-*"My name is that of starlight, my name is that of snow"*
-*"So hear my cry you creatin, for these two things I know"*
-*"My song shall reign on this domain, you murderous cowling swine-"*
-*"Our statues broke, the flame's been stoked, you'll never best the Nine."*
+***"My name is that of starlight, my name is that of snow"***
+***"So hear my cry you creatin, for these two things I know"***
+***"My song shall reign on this domain, you murderous cowling swine-"***
+***"Our statues broke, the flame's been stoked, you'll never best the Nine."***
 
 Yez severed the final cord of Preston's bindings, and he melted to the floor in a pile of wrecked nerves, unable to move. His breath came in jagged with the freedom from his imprisonment, from the torturous bonds which held him. He barely registered when Yez and Sawyer melted back through the realms, and he had no idea how he ended up hoisted up by Tai on the other side of the jail's bars.
 
