@@ -33,4 +33,4 @@ Though his riddle-solving skills are horrendous in the French Fry Forest, Quart 
 
 -Reed: Their past relationship is currently not common knowledge, though based on Quart's behavior it seems to have been a decent friendship or alliance. The current relationship is one-sided as Reed cautiously adjusts to Freshtovia and Quart.
 
-<iframe src="https://open.spotify.com/playlist/4DdBNJLMfHuQ8zm1XyH9WR" width="300" height="380" frameborder="0" allowtransparency="true"></iframe>
+<iframe src="https://open.spotify.com/playlist/4DdBNJLMfHuQ8zm1XyH9WR" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
