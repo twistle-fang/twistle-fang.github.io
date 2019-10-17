@@ -6,6 +6,7 @@ excerpt: "A quirky wizard with spicy fingers."
 image: /images/QuartTart.png
 tag:
 - wendy's
+- drifter
 ---
 
 ## Quart Tart
