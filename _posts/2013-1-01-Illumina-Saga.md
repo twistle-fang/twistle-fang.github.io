@@ -3,7 +3,7 @@ layout: post
 title:  "The Illumina Saga"
 date:   2013-01-1
 excerpt: "Haunted manor in the midst of the forest."
-image: /images/moldovaPic.png
+image: /images/illuminaPic.jpg
 tag:
 - illumina
 - story
