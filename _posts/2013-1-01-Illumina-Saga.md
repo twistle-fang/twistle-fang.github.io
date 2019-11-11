@@ -2,7 +2,7 @@
 layout: post
 title:  "The Illumina Saga"
 date:   2013-01-1
-excerpt: "Haunted manor in the midst of the forest."
+excerpt: "The gods begin to hunt each other."
 image: /images/illuminaPic.jpg
 tag:
 - illumina
@@ -11,6 +11,7 @@ tag:
 
 ## The Illumina Saga
 
+- - - - - - -
 
 ### The Drifters become stranded after a run-in with Cal’Cadoth, the god of the sea. While fending off the invasion of drones sent by the deity, the Drifters are saved by a young girl they believe is the incarnation of Sunny. Together, they journey to the old world to try to restore power to the goddess and return to repel the onslaught above.
 
@@ -76,7 +77,5 @@ The group finds Athil and the others in a small camp well hidden in a cavelet be
 
 While wandering the forest, Reed is followed by Spacejam (Black Tabaxi Death Cleric). Spacejam sneaks up from behind, hearing Reed talking to himself in the middle of the woods, and Reed puts his glasses back on before turning to face her. He seems somewhat unsurprised to find the cat out in the woods, and asks her a question about sailing before returning to the Drifters. Spacejam trails him back, and the other Drifters question Reed about the cat’s identity. Reed nonchalantly explains that she is one of the Drifters, and in response Sun places a white fishscale into the paw of Spacejam. The Drifters settle back in unease, but welcome the cleric into their ranks. 
 
-
-
-
-<iframe src="https://open.spotify.com/embed/user/isittooshortornotavailable/playlist/2HNz7vmuVps1PejfdzDP8n" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+- - - - - - -
+<incomplete>
