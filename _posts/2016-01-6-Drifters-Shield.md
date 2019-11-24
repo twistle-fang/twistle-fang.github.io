@@ -10,7 +10,7 @@ tag:
 - red
 ---
 
-## Blade of the Apothecary
+## Drifter's Shield
 Campaign: Fly By Night
 
 ### Details
