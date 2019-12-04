@@ -2,7 +2,7 @@
 layout: post
 title:  "Quart Tart"
 date:   2019-10-16
-excerpt: "A quirky wizard with spicy fingers."
+excerpt: "Quirky wizard with spicy fingers."
 image: /images/QuartTart.png
 tag:
 - wendy's

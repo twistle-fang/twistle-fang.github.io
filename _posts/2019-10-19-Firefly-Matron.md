@@ -2,7 +2,7 @@
 layout: post
 title:  "Firefly Matron"
 date:   2019-10-19
-excerpt: "An elderly woman lit with power."
+excerpt: "Elderly woman lit with power."
 image: /images/MatronOfFireflies.png
 tag:
 - illumina

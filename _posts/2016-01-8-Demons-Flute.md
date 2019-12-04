@@ -3,7 +3,7 @@ layout: post
 title:  "Demon's Flute"
 date:   2016-01-8
 excerpt: "Busted set of panflutes that no longer produce sound."
-image: /images/demonFlutePic.png
+image: /images/demonsFlutePic.png
 tag:
 - fly by night
 - artifacts 
