@@ -74,3 +74,4 @@ The leader of the Nine. A young human girl wearing white robes, with long hair t
 
 Only child of the Snowdog. The only member of the Nine who all Nine get along with, and a highly capable commander. She holds a close relationship with the bastard sons due to their shared past.
 
+<iframe src="https://open.spotify.com/embed/playlist/4cZ5D6jNa0tmrBUgEiVRMd" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
