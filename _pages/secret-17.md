@@ -3,7 +3,7 @@ layout: post
 title:  "Craftsman"
 date:   1950-01-17
 excerpt: "???"
-image: /images/SanePic.png
+image: /images/emblemPic.png
 permalink: /craftsman.html
 ---
 
