@@ -58,7 +58,7 @@ Son of By-Tor. Unknown Role.
 
 The middle of the bastard sons, often armed with a large crossbow adorned with his deer mask. Dry and cynical, prone to being quite jumpy and paranoid. Operates more on necessity than pleasure.
 
-Son of By-Tor. Expert in natural arcana and traps. Makes fight/flight decisions on behalf of the Nine.
+Son of By-Tor. Expert in natural arcana and  <a href="https://drifter-handbook.github.io/craftsman" >crafting.</a> Makes fight/flight decisions on behalf of the Nine.
 
 Does not get along well with the daughters or thieves, but is close with the bastard sons and Lady Parhelion.
 
