@@ -23,6 +23,9 @@ A powerful relic created by the Gold Master and gifted to Texas. It is a large, 
 Bravado (Lv 1):
 As a bonus action, the user may sacrifice half of their current health to regain a Grit point.
 
+Light Source (Lv 1): 
+When worn, the Lotus Ring automatically illuminates itself and a 5ft radius around itself.
+
 Restored Relic:
 This artifact cannot be destroyed.
 
