@@ -20,8 +20,8 @@ A powerful relic created by By-Tor and gifted to Dyo. The pipes are dented and r
 
 ### Effect
 
-Ranna (Lv 1):
-As an action, the user can cast Sleep on any single enemy without expending any spellslots or requiring the spell in the user's spelllist. However, if the spell succeeds, an ally will fall asleep as well (decided by the DM).
+Ranna (Lv 2):
+As an action, the user can cast Sleep on any single enemy without expending any spellslots or requiring the spell in the user's spelllist. However, if the spell succeeds, an ally will fall asleep as well (decided by the DM). If the spell fails to put any enemies to sleep, both the targeted creature(s) and an ally are silenced for one turn (decided by the DM).
 
 Restored Relic:
 This artifact cannot be destroyed.
