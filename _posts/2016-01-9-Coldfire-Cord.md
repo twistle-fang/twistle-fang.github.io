@@ -20,8 +20,8 @@ A powerful relic created by the Snowdog and gifted to Myth. Several braids hold 
 
 ### Effect
 
-Coldfire (Lv 1):
-User can choose to convert any attack damage type of theirs into Cold damage.
+Coldfire (Lv 2):
+User can choose to convert any attack damage type of theirs into Cold or Fire damage.
 
 Restored Relic:
 This artifact cannot be destroyed.
