@@ -20,8 +20,8 @@ A powerful relic restored by the Red Monk and gifted to Nero. This large shield 
 
 ### Effect
 
-Steadfast (Lv 1):
-As an action, the bearer can activate a special "shield" stance. This stance adds +3 to the user's AC, and the user can share their AC with one adjacent person/object for a turn of combat.
+Steadfast (Lv 2):
+As an action, the bearer can activate a special "shield" stance. This stance adds +3 to the user's AC, and the user can share their AC with one adjacent person/object for a turn of combat. The user cannot lose their shield in this state.
 
 Restored Relic:
 This artifact cannot be destroyed.
